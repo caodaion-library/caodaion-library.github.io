@@ -1,5 +1,4 @@
-
-# LỜI GIỚI THIỆU
+# <center>LỜI GIỚI THIỆU</center>
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kính giới thiệu cùng quí độc giả.
 
