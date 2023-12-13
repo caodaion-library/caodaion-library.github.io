@@ -11,6 +11,10 @@
     {
       "key": "loi-tua",
       "description": "LỜI TỰA"
+    },
+    {
+      "key": "le-nhac-tinh-hoa-phan-mot",
+      "description": "PHẦN MỘT"
     }
   ]
 }
