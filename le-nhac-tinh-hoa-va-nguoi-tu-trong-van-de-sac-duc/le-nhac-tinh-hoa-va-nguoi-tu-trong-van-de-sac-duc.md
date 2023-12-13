@@ -4,7 +4,7 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kính giới thiệu cùng quí độc giả.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Tôi hân hạnh được xem quyền Lễ. Nhạc Tinh-thần của Ban Quản Lý Lê-Nhạc-Đường Hội Thánh Kiến-kế Trung-ương. Quyển sách tuy nhỏ là đã, nhưng chứa đựng được nhiều Tinh-hoa Lễ Nhạc rất khả quan và rất đẹp.
+&nbsp;&nbsp;&nbsp;&nbsp;Tôi hân hạnh được xem quyền Lễ. Nhạc Tinh-thần của Ban Quản Lý Lê-Nhạc-Đường Hội Thánh Kiến-hòa nhiều công phu biên soạn. Mặc dù quyển sách nhỏ bé nhưng chứa đựng được nhiều tinh hoa Lễ Nhạc rất hay và đẹp.
 
 ## Nói đến Lễ Nhạc thì
 
