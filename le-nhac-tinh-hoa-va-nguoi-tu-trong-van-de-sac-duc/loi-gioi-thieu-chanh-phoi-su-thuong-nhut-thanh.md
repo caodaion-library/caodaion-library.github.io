@@ -2,7 +2,7 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kính giới thiệu cùng quí đọc giả.
 
-&nbsp;&nbsp;&nbsp;&nbsp;May mắn được xem quyền “ Lễ-Nhạc Tinh-Hoa Lễ Nhạc Đường Hội Thánh Kiến hòa, công phu biên soạn tôi rất lấy làm thích thú như đạt được lý uyên thâm của Lễ Nhạc.
+&nbsp;&nbsp;&nbsp;&nbsp;May mắn được xem quyền "Lễ-Nhạc Tinh-Hoa Lễ Nhạc" của Lễ Nhạc Đường Đường Hội Thánh Kiến hòa, công phu biên soạn tôi rất lấy làm thích thú như đạt được lý uyên thâm của Lễ Nhạc.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nói đến Lễ Nhạc, tôi nhớ trong Nho Giáo có kể lại rằng: "Không-Tử từ thuở còn thanh niên ở nước Lỗ nồi tiếng là người đã học giỏi về Lễ. Khi Ngài vào Kinh đô nhà Chu đi hỏi lễ ở Lão-Tử, học Nhạc ở Trành - Hoằng Về sau Ngài ra xuất chính, hay là dạy học lúc nào cũng chú ý về Lễ-Nhạc".
 
