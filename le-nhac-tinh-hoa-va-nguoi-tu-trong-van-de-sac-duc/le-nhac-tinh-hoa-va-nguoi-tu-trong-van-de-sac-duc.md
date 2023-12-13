@@ -1,6 +1,6 @@
 # LỄ-NHẠC TINH HOA và NGƯỜI TU TRONG VẤN-ĐỀ SẮC DỤC
 
-# LỜI GIỚI THIÊU
+# LỜI GIỚI THIỆU
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kính giới thiệu cùng quí độc giả.
 
