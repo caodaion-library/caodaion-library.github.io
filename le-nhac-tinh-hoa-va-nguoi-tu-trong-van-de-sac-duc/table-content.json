@@ -7,6 +7,10 @@
     {
       "key": "loi-gioi-thieu-chanh-phoi-su-thuong-nhut-thanh",
       "description": "LỜI GIỚI THIỆU"
+    },
+    {
+      "key": "loi-tua",
+      "description": "LỜI TỰA"
     }
   ]
 }
