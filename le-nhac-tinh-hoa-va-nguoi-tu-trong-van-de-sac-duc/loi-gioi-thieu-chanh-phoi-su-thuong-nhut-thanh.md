@@ -1,6 +1,6 @@
 # <center>LỜI GIỚI THIỆU</center>
 
-Kính giới thiệu cùng quí đọc giả.
+&nbsp;&nbsp;&nbsp;&nbsp;Kính giới thiệu cùng quí đọc giả.
 
 &nbsp;&nbsp;&nbsp;&nbsp;May mắn được xem quyền “ Lễ-Nhạc Tinh-Hoa Lễ Nhạc Đường Hội Thánh Kiến hòa, công phu biên soạn tôi rất lấy làm thích thú như đạt được lý uyên thâm của Lễ Nhạc.
 
