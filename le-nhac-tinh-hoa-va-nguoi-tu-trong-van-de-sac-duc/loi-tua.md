@@ -10,6 +10,6 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;Vì vậy mà có quyển LỄ NHẠC TINH-HOA ra đời. Quyển sách nhỏ này dỉ nhiên còn nhiều khía cạnh chưa bàn. Nhưng đó là một dịp để quí hiền sẵn lòng bổ túc chung lo trong nền Đạo sau này.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Được vậy là một điều rất may mắn cho Hội-Thán. Mong chư quí hiền lưu tâm để thấu đạt nền LÊ NHẠC của Đạo Trời,
+&nbsp;&nbsp;&nbsp;&nbsp;Được vậy là một điều rất may mắn cho Hội-Thán. Mong chư quí hiền lưu tâm để thấu đạt nền LỄ NHẠC của Đạo Trời,
 
-<div style="text-align: right">Nay tựa</div>
+Nay tựa
