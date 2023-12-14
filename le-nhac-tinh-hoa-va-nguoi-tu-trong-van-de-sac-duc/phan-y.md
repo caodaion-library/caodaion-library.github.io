@@ -28,7 +28,7 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nay đến buổi Hạ-nguơn mạt pháp, lễ lại càng mang thêm một sắc thái hoen ố bên trong.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Nên Đức Chí-Tôn dùng huyền diệu cơ bút giáng điển quang lập thành nền Đại-Đạo Ngài dạy trong Thánh-giáo rằng: "Đạo thành là nhờ lễ" rồi Ngài dạy dâng hiến lễ cho Ngài buộc phải đi chữ Tâm ( ) thuận mà dâng lễ. Ngài lại dạy tiếp rằng: "Hòa-thuận là lễ hiến cho Thầy rất trân trọng"
+&nbsp;&nbsp;&nbsp;&nbsp;Nên Đức Chí-Tôn dùng huyền diệu cơ bút giáng điển quang lập thành nền Đại-Đạo Ngài dạy trong Thánh-giáo rằng: "Đạo thành là nhờ lễ" rồi Ngài dạy dâng hiến lễ cho Ngài buộc phải đi chữ Tâm ( 心 ) thuận mà dâng lễ. Ngài lại dạy tiếp rằng: "Hòa-thuận là lễ hiến cho Thầy rất trân trọng"
 
 &nbsp;&nbsp;&nbsp;&nbsp;Có lễ do tâm thành mới trọn lễ hay không? Nếu hiến lễ mà tâm không thành, ý không thuận thì đàn nội không nghiêm, tức Thầy không chứng Mà nói khô Thầy không chứng ắt có tà quái chứng cho, rồi lần lần nó dắt con cái của Đức Chi-Tổn vào vòng tà quái, nên làm sao mà Đạo thành cho được, mà thành không được chắc phải đọa vậy.
 
