@@ -19,6 +19,14 @@
     {
       "key": "phan-ly",
       "description": "PHẦN LÝ"
+    },
+    {
+      "key": "phan-y",
+      "description": "PHẦN Ý"
+    },
+    {
+      "key": "phan-thuc-hanh",
+      "description": "PHẦN THỰC HÀNH"
     }
   ]
 }
