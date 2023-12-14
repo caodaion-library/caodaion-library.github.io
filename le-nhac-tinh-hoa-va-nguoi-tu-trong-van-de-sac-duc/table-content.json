@@ -15,6 +15,10 @@
     {
       "key": "le-nhac-tinh-hoa-phan-mot",
       "description": "PHẦN MỘT"
+    },
+    {
+      "key": "phan-ly",
+      "description": "PHẦN LÝ"
     }
   ]
 }
