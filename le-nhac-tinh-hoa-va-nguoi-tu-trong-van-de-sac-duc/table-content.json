@@ -51,6 +51,10 @@
     {
       "key": "nhac-ly-thoi-xuan-thu",
       "description": "NHẠC LÝ THỜI XUÂN-THU"
+    },
+    {
+      "key": "nhac-ly-hien-dai",
+      "description": "NHẠC LÝ HIỆN ĐẠI"
     }
   ]
 }
