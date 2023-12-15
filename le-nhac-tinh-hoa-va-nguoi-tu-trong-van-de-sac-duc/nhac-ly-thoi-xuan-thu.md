@@ -8,9 +8,9 @@
 
 <center>
 
-> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Không như người nước Trịnh đâu,
+> Không như người nước Trịnh đâu,
 > 
-> &nbsp;&nbsp;&nbsp;&nbsp;Hẹn nhau đến giữa đám dâu tư tình. 
+> Hẹn nhau đến giữa đám dâu tư tình. 
 
 </center>
 
