@@ -6,9 +6,13 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;Còn nhạc nước Trịnh lại đem đến cho xã - hội một ý nghỉ dâm loàn. Nên có câu:
 
+<center>
+
 > &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Không như người nước Trịnh đâu,
 > 
 > &nbsp;&nbsp;&nbsp;&nbsp;Hẹn nhau đến giữa đám dâu tư tình. 
+
+</center>
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ảnh hưởng nhạc Trịnh thời ấy làm cho cang thường điên đảo, phong hóa suy đồi, nhơn tâm bại hoại.
 
