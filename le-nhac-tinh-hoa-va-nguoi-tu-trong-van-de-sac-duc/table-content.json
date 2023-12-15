@@ -31,6 +31,10 @@
     {
       "key": "le-nhac-tinh-hoa-phan-hai",
       "description": "PHẦN HAI"
+    },
+    {
+      "key": "tim-hieu-nhac-ly-xuat-nguyen",
+      "description": "Tìm hiểu nhạc lý xuất nguyên"
     }
   ]
 }
