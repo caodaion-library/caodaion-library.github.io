@@ -35,6 +35,14 @@
     {
       "key": "tim-hieu-nhac-ly-xuat-nguyen",
       "description": "Tìm hiểu nhạc lý xuất nguyên"
+    },
+    {
+      "key": "thoi-ky-nhac-tuong",
+      "description": "Thời Kỳ Nhạc Tượng"
+    },
+    {
+      "key": "nhac-ly-thanh-suy",
+      "description": "Nhạc lý thạnh suy"
     }
   ]
 }
