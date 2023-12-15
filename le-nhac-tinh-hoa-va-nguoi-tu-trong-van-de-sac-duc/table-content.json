@@ -27,6 +27,10 @@
     {
       "key": "phan-thuc-hanh",
       "description": "PHẦN THỰC HÀNH"
+    },
+    {
+      "key": "le-nhac-tinh-hoa-phan-hai",
+      "description": "PHẦN HAI"
     }
   ]
 }
