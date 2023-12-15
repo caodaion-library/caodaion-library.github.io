@@ -43,6 +43,14 @@
     {
       "key": "nhac-ly-thanh-suy",
       "description": "Nhạc lý thạnh suy"
+    },
+    {
+      "key": "nhac-ly-va-nhac-y",
+      "description": "Nhạc Lý và Nhạc Ý"
+    },
+    {
+      "key": "nhac-ly-thoi-xuan-thu",
+      "description": "NHẠC LÝ THỜI XUÂN-THU"
     }
   ]
 }
