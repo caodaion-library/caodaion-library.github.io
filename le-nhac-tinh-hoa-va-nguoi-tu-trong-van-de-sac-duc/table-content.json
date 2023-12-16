@@ -63,6 +63,10 @@
     {
       "key": "loi-bat",
       "description": "Lời Bạt"
+    },
+    {
+      "key": "nguoi-tu-trong-van-de-sac-duc",
+      "description": "NGƯỜI TU TRONG VẤN ĐỀ SẮC DỤC"
     }
   ]
 }
