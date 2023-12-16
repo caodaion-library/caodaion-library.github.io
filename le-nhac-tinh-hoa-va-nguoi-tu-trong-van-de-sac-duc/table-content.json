@@ -71,6 +71,10 @@
     {
       "key": "loi-gioi-thieu-dau-su-ngoc-huong-thanh",
       "description": "LỜI GIỚI THIỆU"
+    },
+    {
+      "key": "loi-tua-chanh-phoi-su-ngoc-dang-thanh",
+      "description": "LỜI TỰA"
     }
   ]
 }
