@@ -12,7 +12,7 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;Bởi lễ có ba cái gốc: Trời Đất là gốc của sự sinh-trưởng, Tô-Tiên là gốc chủng loại, Vua Thầy là gốc của sự trị-lý. Không có Trời Đất thì ở đâu mà sinh. Không có Tô Tiên thì lấy đâu mà ra. Không có Vua Thầy lấy đâu mà trị. Ba điều ấy thiếu đi một là loài người không yên được, cho nên trên thờ Trời, dưới thờ Đất, tôn Tổ Tiên, trong Vua và Thầy ấy là ba gốc của lễ vậy.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Lễ có thể lực mạnh như thế, cho nên nói: “Lễ là cái phận lớn của điền-pháp, cái kỷ cương quần loại, cho nên phải học cho đến lễ mới thôi vậy."
+&nbsp;&nbsp;&nbsp;&nbsp;Lễ có thế lực mạnh như thế, cho nên nói: “Lễ là cái phận lớn của điền-pháp, cái kỷ cương quần loại, cho nên phải học cho đến lễ mới thôi vậy."
 
 &nbsp;&nbsp;&nbsp;&nbsp;**Nhạc:** Nhạc với lòng người cảm hóa lẫn nhau, một là bởi lòng người cảm xúc ngoại cảnh mà thành ra tiếng nhạc, hai là tiếng nhạc cảm lòng người, rồi lòng người thu tiếng nhạc mà biến đi.
 
