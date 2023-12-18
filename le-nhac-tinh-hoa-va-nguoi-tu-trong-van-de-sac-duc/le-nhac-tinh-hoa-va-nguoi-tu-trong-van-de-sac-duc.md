@@ -426,3 +426,22 @@ Nay tựa
 
 ---
 
+# <center>LỜI GIỚI THIỆU</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Kính cùng chư quí hiền,
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tôi hân hạnh được xem quyển: NGƯỜI TU TRONG VẤN ĐỀ SẮC DỤC của soạn giả Chánh Phối Sư NGỌC-ĐÁNG-THANH đã lắm công phu biên soạn nhiều trong kinh điển lập thành và tôi rất lấy làm vui mừng giới thiệu cùng chư quí hiền
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tôi nhận định rằng sách này chia ra làm hai phần.
+
+&nbsp;&nbsp;&nbsp;&nbsp;1−/ Phần người tu luyện sắc để đi đến Đắc Đạo.
+
+&nbsp;&nbsp;&nbsp;&nbsp;2-/ Phần người tu giới sắc đề đi đến Đắc Đạo.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Thiết tưởng người tu hành bao giờ cũng vấp phải ít nhiều sự khảo thí của sắc dục nên chúng ta cần lưu tâm và thận trọng trên bước đường tu học của mình.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Là người tu theo Tam-Kỳ Phổ Độ, chúng ta nên đi đúng theo Tân Luật, tôi tin chắc rằng cũng đoạt được địa vị Thần, Thánh, Tiên, Phật, vì vậy quyền sách nầy sẽ giúp ích không nhỏ cho chư quí hiền trong việc tu thân hành Đạo.
+
+#### <center>Đầu Sư </br> NGỌC HƯỜNG THANH</center>
+
+---
