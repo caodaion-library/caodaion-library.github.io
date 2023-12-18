@@ -422,7 +422,7 @@ Nay tựa
 
 # <center>NGƯỜI TU </br> TRONG VẤN ĐỀ SẮC DỤC</center>
 
-#### <center>CHÁNH PHỐI-SƯ </br> NGỌC-ĐÁNG-THANH</center>
+**<center>CHÁNH PHỐI-SƯ </br> NGỌC-ĐÁNG-THANH</center>**
 
 ---
 
@@ -442,6 +442,23 @@ Nay tựa
 
 &nbsp;&nbsp;&nbsp;&nbsp;Là người tu theo Tam-Kỳ Phổ Độ, chúng ta nên đi đúng theo Tân Luật, tôi tin chắc rằng cũng đoạt được địa vị Thần, Thánh, Tiên, Phật, vì vậy quyền sách nầy sẽ giúp ích không nhỏ cho chư quí hiền trong việc tu thân hành Đạo.
 
-#### <center>Đầu Sư </br> NGỌC HƯỜNG THANH</center>
+**<center>Đầu Sư </br> NGỌC HƯỜNG THANH</center>**
 
 ---
+
+# <center>LỜI TỰA</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Kính cùng quí Huynh, Tỷ
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chúng ta đều là những người đang tìm học chân lý Đạo Trời tu thân và hành Đạo. Bao nhiêu trách nhiệm nặng nề của người tu mà mình đã nguyện lãnh với Thiêng-Liêng. Hẳn nhiên, ai cũng cố mong làm tròn phận sự mình dầu cho có muôn điều thử thách gian nan, song lưu ý nhất là vấn đề sắc dục nếu bị khảo Chắc rằng nó sẽ làm cho ta uổng phí công tu.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nay trong buổi Hạ-Ngươn mạt pháp này, Đức Chí. Tôn khai Tam-Kỳ Phổ Độ, ban Đại-ân xá kỳ ba cứu rồi cho cả chúng sanh. Thương yêu chúng ta đến nỗi cho phép tự lập luật pháp lấy mà tu hành tinh tấn mau trở về ngôi xưa vị cũ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Muốn vào địa vị Thần, Tiên ấy, ta nên giữ gìn đúng theo Tân-Luật, Pháp Chánh-Truyền: ấy là luật pháp cao siêu trong Tam-Kỳ Phổ Độ để đưa chúng ta đến siêu phàm nhập Thánh.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vì vậy mà tôi không ngần ngại tài sơ trí siển soạn ra quyển sách tựa là: "NGƯỜI TU TRONG VẤN ĐỀ SẮC DỤC", để quí Huynh Tỷ tường lảm.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chắc rằng quyền sách nhỏ này còn nhiều điều sơ sót, kính mong quí vị cao minh chỉ giáo.
+
+
+**<center>Nay tựa </br> Chánh-Phối-Sư </br> NGỌC-ĐÁNG-THANH</center>**
