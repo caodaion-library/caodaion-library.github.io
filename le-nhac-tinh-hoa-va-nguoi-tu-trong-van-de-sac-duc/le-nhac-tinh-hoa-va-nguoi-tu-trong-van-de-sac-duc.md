@@ -460,5 +460,30 @@ Nay tựa
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chắc rằng quyền sách nhỏ này còn nhiều điều sơ sót, kính mong quí vị cao minh chỉ giáo.
 
-
 **<center>Nay tựa </br> Chánh-Phối-Sư </br> NGỌC-ĐÁNG-THANH</center>**
+
+---
+
+# <center>DẪN NHẬP</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Từ xưa tới nay con đường tu hành hình như lúc nào cũng cam go vất vả đối với người tu. Ít ai mà không bị khảo đảo, thử thách đủ điều. Thiết tưởng rằng trong những gian nan đó, con đường sắc dục đả níu kéo lắm người tu sa chơn vào bề ái mà chậm bước trên đường Thiên Đạo của mình.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Duyên cớ ấy bởi tại nơi đâu ...? Là những người tu, ta thử tìm hiểu nguyên nhân và quán tưởng tận cùng lý lẻ của sắc dục đề rút tỉa kinh nghiệm làm một bài học cho thân tâm hầu xây đắp một nền tảng Đạo - Đức cho chính mình được vững vàng, thanh tịnh.
+
+---
+
+# <center>I. Nguyên nhân của sắc dục</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Muốn tri nguyên sự sắc dục, trước tiên ta nên suy nghiệm rằng con người do đâu mà sanh ra dục vọng rồi khi đến tuổi thành niên trở lên, biết buông theo bóng sắc để thỏa lòng ham muốn? Có phải chăng con người chịu sanh-sanh, hóa-hóa, trong bể dục tình mà ra? do bởi hệ thống di-truyền được tiếp nối từ Tổ-Tiên, Ông Bà, Cha Mẹ, có ít nhiều sự ái dục mà gây tạo nên thân tứ đại này.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Hẳn nhiên trong xác phàm này các vị tế trần ấy tàn ấn trong máu thịt, tủy xương, nhuộm lần trong tinh thần của con người được gieo tạo nên hình.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đành rằng sách có câu" Nhơn chi sơ, lánh bồn thiện" nhưng tâm lý học đã nghiên cứu và chứng minh rằng sở dỉ trẻ con từ lúc mới sanh ra chưa có cảm giác, xúc động hoặc ham muốn như người lớn, vì các cơ năng các hệ thần kinh chưa được phát triển và sự phát triển phải theo luật định thiên nhiên của các thời gian và nhu cầu sự sống ngoại trừ các trường hợp bất bình thường. Bởi vậy khi con người lớn lên sự dục cũng là một cơ quan được trưởng thành theo ý thức của mỗi con người. Nếu như rủi bị thu hút thêm bụi hồng trần, đem mình vào danh, lợi, tình, vào ba cửa tham, sân, si, thì sự dục như có cơ đi hội phát triển mạnh mẻ thêm lên. Do đó bên ngoài mỗi khi "kiến nhản tâm động" thì lòng dục bên trong kết hợp với sắc tướng sự quyến rủ của sắc đẹp đưa đến dễ dàng và nhất là người tu nếu không thấy sự lợi hại của ngoại cảnh và sự trưởng thành sinh lý trong cơ thể của mình cũng dễ bị sa vào đuờng ái dục.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Bởi các lẻ ấy, vấn đề sắc dục, nguyên lý đầu tiên đối với người tu chơn, chắc hẳn không lấy gì làm quan tâm vì cho rằng đó là lẻ tự nhiên mà con người mang xác phàm này ai ai cũng có nhiều ít di truyền dục vọng tàn ẩn bên trong và thâm nhiễm từ bên ngoài, nên lo lần hồi gột rửa.
+
+---
+
+# <center>II. Sự quyến rủ của sắc dục</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chúng ta thừa biết rằng sắc dục là lòng ham muốn sắc đẹp. Nó như những đóa hoa hồng rực rỡ dể lôi cuốn và cám dỗ con người có ý cầu chiếm hữu, hoặc lóe lên trong tư tưởng những mầm móng không hay. Phân tích chữ sắc ( 色 ) trong nho: sắc có bộ đao ở trên( 刀 ) Đao là khí giới để giết người. Vậy trong sắc có vật bén để chém đứt con người ra từng mảnh Bởi vậy có câu: "Hữu nhan sắc, hữu ác đức". Tuy nhiên sự ác được sự lộng lẫy quyến rủ che đậy bề ngoài như dưới hoa hồng có ẩn gai nhọn, nhưng khi lòng ham muốn của con người dấy lên như quên đi những gì đau khổ, đưa tay bẻ lấy cành hoa đẹp, vồ chụp những bóng sắc yêu thương ân ái mà không sợ gai đao bén nhọn. Ôi! tươi tốt nhưng nguy - hiểm. Bởi vậy Lữ-Động Tân có bài thơ diễn tả như vầy:
