@@ -22,7 +22,8 @@
       "key": "thanh-thi-day-dao-buoi-dau",
       "name": "THÁNH THI DẠY ĐẠO BUỔI ĐẦU",
       "published": true,
-      "origin": false
+      "origin": false,
+      "cover": false
     }
   ]
 }
