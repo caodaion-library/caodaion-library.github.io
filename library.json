@@ -17,6 +17,12 @@
       "name": "CHÂU TRI CHỈNH ĐẠO",
       "published": false,
       "origin": true
+    },
+    {
+      "key": "thanh-thi-day-dao-buoi-dau",
+      "name": "THÁNH THI DẠY ĐẠO BUỔI ĐẦU",
+      "published": true,
+      "origin": true
     }
   ]
 }
