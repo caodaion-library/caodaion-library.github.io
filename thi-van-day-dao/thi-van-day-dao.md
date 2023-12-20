@@ -44,3 +44,22 @@
 >
 > Vững bền vạn kiếp chẳng hề xao.
 
+---
+
+## 3.
+
+> Huỳnh lương một giấc cuộc đời in,
+>
+> Có trí có mưu phải xét mình.
+>
+> Danh lợi lớn là giành với giựt
+>
+> Phú quí cao bởi mượn và xin.
+>
+> Trăm năm lẩn quẩn đường nhơn nghĩa,
+>
+> Một kiếp đeo đai mối nợ tình.
+>
+> Biết ố biết căn tua biết phận,
+>
+> Đường xưa để bước lại Thiên đình.
