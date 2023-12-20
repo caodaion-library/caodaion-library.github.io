@@ -228,3 +228,38 @@
 
 ## 17.
 
+> Cậy kẻ dạy con cũng lẽ thường
+>
+> Cho roi cho vọt mới là thương,
+>
+> Nhân tình ví chẳng mưu thâu phục,
+>
+> Thế giái mong chi phép độ lường,
+>
+> Nhỏ dạy Thầy nuôi mùi đạo hạnh,
+>
+> Lớn khôn bây xứng mặt hiền lương,
+>
+> Vinh hoa phẩm cũ ngôi xưa đó,
+>
+> Khổ cực các con chớ bỏ trường.
+
+---
+
+## 18.
+
+> Khán đắc phù sanh nhứt thế không,
+>
+> Điền viên sản nghiệp diệt giai không
+>
+> Thê nhi phụ mẫu chung ly biệt,
+>
+> Phú quí công danh tổng thị không
+>
+> Cổ ngữ vạn bang đô thị giả,
+>
+> Kim ngôn bách kế nhứt trường không
+>
+> Tiền tài thâu nhập đa tân khổ,
+>
+> Lộ thượng Huỳnh tuyền lưỡng thủ không.
