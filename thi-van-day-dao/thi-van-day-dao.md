@@ -3,6 +3,7 @@
 <center>* * * * *</center>
 
 ---
+
 ## 1.
 
 > Tròi trọi mình không mới thiệt bần,
@@ -20,6 +21,8 @@
 > Chừng nào đất dậy Trời thay xác,
 >
 > Chư Phật, Thánh, Tiên xuống ở trần.
+
+---
 
 ## 2. 
 
