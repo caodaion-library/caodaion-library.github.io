@@ -1,5 +1,7 @@
 # <center>LỄ-NHẠC TINH HOA và NGƯỜI TU TRONG VẤN-ĐỀ SẮC DỤC</center>
 
+---
+
 # <center>LỜI GIỚI THIỆU</center>
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kính giới thiệu cùng quí độc giả.
@@ -10,9 +12,9 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;Lễ-Nhạc rất quan hệ đến luân lý, phong tục và chân-trí. Là tín đồ Đạo Cao-Đài phải tìm cái căn nguyên trong Đạo tự nhiên: cho lễ là cái trật tự, cho nhạc là sự dào dạt của Trời Đất.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Bởi lễ có ba cái gốc: Trời Đất là gốc của sự sinh-trưởng, Tô-Tiên là gốc chủng loại, Vua Thầy là gốc của sự trị-lý. Không có Trời Đất thì ở đâu mà sinh. Không có Tô Tiên thì lấy đâu mà ra. Không có Vua Thầy lấy đâu mà trị. Ba điều ấy thiếu đi một là loài người không yên được, cho nên trên thờ Trời, dưới thờ Đất, tôn Tổ Tiên, trong Vua và Thầy ấy là ba gốc của lễ vậy.
+&nbsp;&nbsp;&nbsp;&nbsp;Bởi lễ có ba cái gốc: Trời Đất là gốc của sự sinh-trưởng, Tổ-Tiên là gốc chủng loại, Vua Thầy là gốc của sự trị-lý. Không có Trời Đất thì ở đâu mà sinh. Không có Tô Tiên thì lấy đâu mà ra. Không có Vua Thầy lấy đâu mà trị. Ba điều ấy thiếu đi một là loài người không yên được, cho nên trên thờ Trời, dưới thờ Đất, tôn Tổ Tiên, trong Vua và Thầy ấy là ba gốc của lễ vậy.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Lễ có thể lực mạnh như thế, cho nên nói: “Lễ là cái phận lớn của điền-pháp, cái kỷ cương quần loại, cho nên phải học cho đến lễ mới thôi vậy."
+&nbsp;&nbsp;&nbsp;&nbsp;Lễ có thế lực mạnh như thế, cho nên nói: “Lễ là cái phận lớn của điền-pháp, cái kỷ cương quần loại, cho nên phải học cho đến lễ mới thôi vậy."
 
 &nbsp;&nbsp;&nbsp;&nbsp;**Nhạc:** Nhạc với lòng người cảm hóa lẫn nhau, một là bởi lòng người cảm xúc ngoại cảnh mà thành ra tiếng nhạc, hai là tiếng nhạc cảm lòng người, rồi lòng người thu tiếng nhạc mà biến đi.
 
@@ -422,7 +424,163 @@ Nay tựa
 
 # <center>NGƯỜI TU </br> TRONG VẤN ĐỀ SẮC DỤC</center>
 
-#### <center>CHÁNH PHỐI-SƯ </br> NGỌC-ĐÁNG-THANH</center>
+**<center>CHÁNH PHỐI-SƯ </br> NGỌC-ĐÁNG-THANH</center>**
 
 ---
+
+# <center>LỜI GIỚI THIỆU</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Kính cùng chư quí hiền,
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tôi hân hạnh được xem quyển: NGƯỜI TU TRONG VẤN ĐỀ SẮC DỤC của soạn giả Chánh Phối Sư NGỌC-ĐÁNG-THANH đã lắm công phu biên soạn nhiều trong kinh điển lập thành và tôi rất lấy làm vui mừng giới thiệu cùng chư quí hiền
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tôi nhận định rằng sách này chia ra làm hai phần.
+
+&nbsp;&nbsp;&nbsp;&nbsp;1−/ Phần người tu luyện sắc để đi đến Đắc Đạo.
+
+&nbsp;&nbsp;&nbsp;&nbsp;2-/ Phần người tu giới sắc đề đi đến Đắc Đạo.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Thiết tưởng người tu hành bao giờ cũng vấp phải ít nhiều sự khảo thí của sắc dục nên chúng ta cần lưu tâm và thận trọng trên bước đường tu học của mình.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Là người tu theo Tam-Kỳ Phổ Độ, chúng ta nên đi đúng theo Tân Luật, tôi tin chắc rằng cũng đoạt được địa vị Thần, Thánh, Tiên, Phật, vì vậy quyền sách nầy sẽ giúp ích không nhỏ cho chư quí hiền trong việc tu thân hành Đạo.
+
+**<center>Đầu Sư </br> NGỌC HƯỜNG THANH</center>**
+
+---
+
+# <center>LỜI TỰA</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Kính cùng quí Huynh, Tỷ
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chúng ta đều là những người đang tìm học chân lý Đạo Trời tu thân và hành Đạo. Bao nhiêu trách nhiệm nặng nề của người tu mà mình đã nguyện lãnh với Thiêng-Liêng. Hẳn nhiên, ai cũng cố mong làm tròn phận sự mình dầu cho có muôn điều thử thách gian nan, song lưu ý nhất là vấn đề sắc dục nếu bị khảo Chắc rằng nó sẽ làm cho ta uổng phí công tu.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nay trong buổi Hạ-Ngươn mạt pháp này, Đức Chí. Tôn khai Tam-Kỳ Phổ Độ, ban Đại-ân xá kỳ ba cứu rồi cho cả chúng sanh. Thương yêu chúng ta đến nỗi cho phép tự lập luật pháp lấy mà tu hành tinh tấn mau trở về ngôi xưa vị cũ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Muốn vào địa vị Thần, Tiên ấy, ta nên giữ gìn đúng theo Tân-Luật, Pháp Chánh-Truyền: ấy là luật pháp cao siêu trong Tam-Kỳ Phổ Độ để đưa chúng ta đến siêu phàm nhập Thánh.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vì vậy mà tôi không ngần ngại tài sơ trí siển soạn ra quyển sách tựa là: "NGƯỜI TU TRONG VẤN ĐỀ SẮC DỤC", để quí Huynh Tỷ tường lảm.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chắc rằng quyền sách nhỏ này còn nhiều điều sơ sót, kính mong quí vị cao minh chỉ giáo.
+
+**<center>Nay tựa </br> Chánh-Phối-Sư </br> NGỌC-ĐÁNG-THANH</center>**
+
+---
+
+# <center>DẪN NHẬP</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Từ xưa tới nay con đường tu hành hình như lúc nào cũng cam go vất vả đối với người tu. Ít ai mà không bị khảo đảo, thử thách đủ điều. Thiết tưởng rằng trong những gian nan đó, con đường sắc dục đả níu kéo lắm người tu sa chơn vào bề ái mà chậm bước trên đường Thiên Đạo của mình.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Duyên cớ ấy bởi tại nơi đâu ...? Là những người tu, ta thử tìm hiểu nguyên nhân và quán tưởng tận cùng lý lẻ của sắc dục đề rút tỉa kinh nghiệm làm một bài học cho thân tâm hầu xây đắp một nền tảng Đạo - Đức cho chính mình được vững vàng, thanh tịnh.
+
+---
+
+# <center>I. Nguyên nhân của sắc dục</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Muốn tri nguyên sự sắc dục, trước tiên ta nên suy nghiệm rằng con người do đâu mà sanh ra dục vọng rồi khi đến tuổi thành niên trở lên, biết buông theo bóng sắc để thỏa lòng ham muốn? Có phải chăng con người chịu sanh-sanh, hóa-hóa, trong bể dục tình mà ra? do bởi hệ thống di-truyền được tiếp nối từ Tổ-Tiên, Ông Bà, Cha Mẹ, có ít nhiều sự ái dục mà gây tạo nên thân tứ đại này.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Hẳn nhiên trong xác phàm này các vị tế trần ấy tàn ấn trong máu thịt, tủy xương, nhuộm lần trong tinh thần của con người được gieo tạo nên hình.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đành rằng sách có câu" Nhơn chi sơ, lánh bồn thiện" nhưng tâm lý học đã nghiên cứu và chứng minh rằng sở dỉ trẻ con từ lúc mới sanh ra chưa có cảm giác, xúc động hoặc ham muốn như người lớn, vì các cơ năng các hệ thần kinh chưa được phát triển và sự phát triển phải theo luật định thiên nhiên của các thời gian và nhu cầu sự sống ngoại trừ các trường hợp bất bình thường. Bởi vậy khi con người lớn lên sự dục cũng là một cơ quan được trưởng thành theo ý thức của mỗi con người. Nếu như rủi bị thu hút thêm bụi hồng trần, đem mình vào danh, lợi, tình, vào ba cửa tham, sân, si, thì sự dục như có cơ đi hội phát triển mạnh mẻ thêm lên. Do đó bên ngoài mỗi khi "kiến nhản tâm động" thì lòng dục bên trong kết hợp với sắc tướng sự quyến rủ của sắc đẹp đưa đến dễ dàng và nhất là người tu nếu không thấy sự lợi hại của ngoại cảnh và sự trưởng thành sinh lý trong cơ thể của mình cũng dễ bị sa vào đuờng ái dục.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Bởi các lẻ ấy, vấn đề sắc dục, nguyên lý đầu tiên đối với người tu chơn, chắc hẳn không lấy gì làm quan tâm vì cho rằng đó là lẻ tự nhiên mà con người mang xác phàm này ai ai cũng có nhiều ít di truyền dục vọng tàn ẩn bên trong và thâm nhiễm từ bên ngoài, nên lo lần hồi gột rửa.
+
+---
+
+# <center>II. Sự quyến rủ của sắc dục</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chúng ta thừa biết rằng sắc dục là lòng ham muốn sắc đẹp. Nó như những đóa hoa hồng rực rỡ dể lôi cuốn và cám dỗ con người có ý cầu chiếm hữu, hoặc lóe lên trong tư tưởng những mầm móng không hay. Phân tích chữ sắc ( 色 ) trong nho: sắc có bộ đao ở trên( 刀 ) Đao là khí giới để giết người. Vậy trong sắc có vật bén để chém đứt con người ra từng mảnh Bởi vậy có câu: "Hữu nhan sắc, hữu ác đức". Tuy nhiên sự ác được sự lộng lẫy quyến rủ che đậy bề ngoài như dưới hoa hồng có ẩn gai nhọn, nhưng khi lòng ham muốn của con người dấy lên như quên đi những gì đau khổ, đưa tay bẻ lấy cành hoa đẹp, vồ chụp những bóng sắc yêu thương ân ái mà không sợ gai đao bén nhọn. Ôi! tươi tốt nhưng nguy - hiểm. Bởi vậy Lữ-Động Tân có bài thơ diễn tả như vầy:
+
+> Nhị bát giai nhân thế tự tô,
+>
+> Yêu huyền lợi kiếm trảm ngu phu,
+>
+> Tuy nhiên bất kiến nhơn đầu lạc,
+>
+> Ám lý giao quân cốt tủy khô.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nghĩa là:
+
+> Hai tám gái tơ dạng mỹ miều,
+>
+> Lưng đeo gươm bén chém người yêu. (Người thương mình )
+>
+> Tuy là chẳng thấy đầu người rung,
+>
+> Thỏn mỏn hại chàng cốt tủy tiêu
+
+Bạch Tần Lão-Nhơn trong Dưởng.Chơn- Tập nhận xét bài thơ trên rằng:
+
+> " Ôi! Người bực trung niên sắp lên còn chẳng tin chắc lời này, hà huống là bọn thiếu niên, hà huống là kẻ thiếu-niên không biết gì! "
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sắc đẹp quyến rủ người tu bằng nhiều hình thức và người tu quan niệm rằng đó là những sự khảo sắc làm cho mình chồn chân thối bước tu hành. Nội khảo là do bởi tâm trần chưa dứt, sắc hiện bên trong, làm cho tâm hồn chẳng định, tư tưởng vẫn vơ, mơ màng trong giấc điệp ma sắc hiện đến trong chiêm bao khêu gợi ái ân, làm cho di thất, lần lần tinh ba suy nhược, sức khỏe kém dần, đường tu theo năm tháng si mê bị dải đải mỏi mòn.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Còn ngoại cảnh là hình dạng gái đẹp bên ngoài, chập chờn bóng sắc, buông lời ăn tiếng ái lả lướt ngọt ngào, cốt ý khiến cho người tu mề một tâm hồn tinh thần xao động. Nếu không được kềm chế, thì trước tiên sanh ra ý dâm, tư tưởng dục, rồi lần lần biến ra hành động, mở lối cho sắc tình xâm nhập mà quên mùi Đạo hạnh. Tinh tế và thâm thuý hơn, sắc đẹp thừa dịp người tu bị dập dồn thử thách nào là tai nạn thảm sầu thiệt thòi sa sút, nào là bệnh hoạn rên than v,v... tìm kiếm lời an ủi, giúp đỡ bạc tiền, phục dịch uống ăn... gây nhiều ân nghĩa, làm cho ta phải nghĩ đến việc nghĩa trả ăn đền. Mối tình cảm sẵn đó thêm đậm đà tha thiết; người nầy khiên triều người nọ, người nọ đà lụy người kia, riết rồi Thiên Đạo thối lui mà trở về thế tục.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sâu sắc và ý nghĩa hơn nữa, nếu người tu không hạn chế những câu văn thi phú khoe tài thơ từ trao đổi cảm thông thả lòng theo ngòi bút cho tâm sự phơi bài giữa hai thái cực, thì từ nghĩa xa đến nghĩa gần, dần dần đến cảm mến, tư tưởng buộc ràng, mộng mơ trần thể thì đường tu hành ắt phải chênh mãn lảng lơ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nói sao cho hết, tả sao cho cùng muôn ngàn điều quyến rủ của sắc đẹp. Truyện xưa vì một tư tưởng trần dục chưa dứt, mà người tu ai cũng | rõ tích Bà Vọng-Phu để tri nguyên thức tỉnh Gương Thích-Ca bị ma vương sắc đẹp cảm dụ dưới cội bồ đề ai cũng biết mà tập tánh quán tưởng định tâm.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nay sức quyến rủ của sắc trong buổi đời Hạ - Nguơn tận diệt cực kỳ khiếm lễ, nhưng Đấng Cha Lành không nở đề các con cái của Ngài đắm chìm trong vật dục. Ngài hội quần Tiên định luật cứu đời, khai Tam.Kỳ Phổ-Độ ban Đại An Xá kỳ ba, người tu vào Đạo Trời nhờ hồng phước ấy mà oan nghiệt tiêu tan, nợ duyên rảnh rỗi,nhờ Tân Luật nhiệm mầu, Tân-Pháp cao sâu mà tinh tấn tu hành thuyền tâm được vũng lái vượt qua mọi phong ba thử thách, nhờ gương luật pháp của Đức Giáo - Tông NUYỄN-NGỌC TƯƠNG mà nương lần đến cơ Đại-Đồng tuyệt khổ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Ấy là:
+
+> Lánh đường trần tục đến non tiên.
+>
+> Lấy nước nhành dương tưới lửa phiền,
+>
+> Đã chẳng phải duyên không phải nợ,
+>
+> Can chi con buộc tấm tình riêng,
+
+---
+
+# <center>III. Sự tai hại của sắc dục</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Như đã nêu trên, sắc dục có sức mạnh quyến rủ bên ngoài nhưng bên trong thì vô cùng nguy hiểm, nguy hiểm bao nhiêu thì tai hại bấy nhiêu. Xưa nay từ bực vua quan cho đến dân hèn say mê tửu sắc thì sự nghiệp liều tan, hủy diệt thân hình. Người tu nay cũng vì nó mà bị vô minh che lấp, chịu khổ đời đời, dư luận cười chê. Vì bởi sắc dục nó nạo tinh thần nó tổn ngươn tinh, hao mòn ngươn khí. Nó là một món đồ độc hể ai dùng đến một cách bất chánh, bất thường thì hư thân hoại thể, lủng đoạn cang thường, hư danh tiết, tản gia sản loạn nhơn luân việc-việc đều tệ cũng bởi sắc mà ra,
+
+&nbsp;&nbsp;&nbsp;&nbsp;Ai biết giữ gìn chỗ sắc dục thì mới đặng bảo dưỡng xác thân, tinh thần mạnh khỏe. Nếu chẳng bảo trọng ắt trăm bệnh phát sanh mau vào cỏi chết Bệnh đây không do phong, hàn thủ thấp mà là bệnh của ái dục do cái phàm tâm, thức thần nó hay thương yêu việc thê ân tử ái, ham luyến vật dục hàng ngày làm cho khí huyết suy bại. Hể tinh khô huyết cạn thì con người phải bỏ xác thân này.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Kinh cựu ước có dạy rằng:
+
+> "Vì môi kẻ dâm dục đặt ra,
+>
+> Và miệng nó dịu hơn dầu,
+>
+> Nhưng rốt lại đắng như ngải cứu,
+>
+> Bén như gươm hai lưỡi,
+>
+> Chơn nó xuống chốn chết,
+>
+> Bước nó đụng đến âm phủ,"
+
+&nbsp;&nbsp;&nbsp;&nbsp;Và:
+
+> "Nàng dùng lắm lời êm dịu quyến dụ hắn
+>
+> Làm cho hắn sa ngả vì lời dua nịnh của môi miệng mình.
+>
+> Hắn liền đi theo nàng,
+>
+> Như một con bò đến lò cạo
+>
+> Như kẻ ngu dại bị cùm dẫn đi chịu hình phạt
+>
+> Như con chim bay a vào lưới,
+>
+> Mà không biết rằng nó rập sự sống mình.
+>
+> Dẫn xuống các phòng của sự chết,"
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sách Dưởng Chơn-Tập chép rằng: "Ôi! dầu khô đèn tắt, tủy hết người chết. Quán Sở Lầu Tần chẳng phải là chỗ vui, ấy là lưới rập hãm bắt con người. Xướng ca vô loại là chẳng phải người vui ấy là quỷ mị phá tan nhà cửa.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Người người đều sợ quỷ, duy không sợ thứ quỷ đội lốt ở trong nhà nó câu thần hồn con người. Người đều sợ cọp, duy không sợ thứ cọp ngủ chung với mình trên giường, nó ăn cốt tủy con người. Người đều sợ rắn, duy không sợ thứ rắn bao quấn người trong mền, nó hút khí huyết con người. Người đều sợ trộm cướp, duy không sợ thứ trộm cướp đoạt khi dương ban đêm nó hại tánh mạng con người. Sắc nó hại người lớn lắm thay!. . .
+
+&nbsp;&nbsp;&nbsp;&nbsp;Còn như nói rằng vợ con là hạnh phúc điều đó có đúng không? xin thưa: Đức chúa-Trời có phán rằng: "Nếu ai đến cùng ta mà không ghét vợ con và chính mạng sống của mình nữa thì không thể làm môn đồ ta."
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vậy người tu thử xét xem trong việc vợ mến con thương ái-ân khiên triền, sanh ra tranh danh đoạt lợi, tội lỗi đủ điều; trầm luân mãi-mãi. Người đời cho rằng: "Vợ chồng là oan gia con cháu là trái chủ" hay là: "Con là nợ, vợ là oan gia, của nhà là nghiệp báo" Vì thế trong việc ân tình tạo ra biết bao nhiêu phiền não, trong chỗ ái dục sanh ra biết bao oán hờn. Còn sống đây còn vợ còn chồng, thác rồi có khi thay chồng đối vợ Người ta thường nghỉ cho việc hồng trần tang thương dường ấy, như bèo giạt hoa trôi, như sáng rồi chiều, như trăng tròn rồi khuyết, tựa như tuồng hát bội, nào là vua tôi, nào là vợ chồng, cha con thay đổi liền liền trên sân khấu. Sự thay đổi ấy có phải chăng là tại tình trường muôn lối, tại sắc tài mà quên lẻ vô thường, quên câu hiếu đạo, chịu lụy vì sắc danh mà thân nầy phải mang nhiều khó nhọc Ông Lục-Thiên-Trì có đặt truyện mà giải mê cho đời rằng: "Các cung nga ốm o gầy mòn vua đòi quan thầy thuốc vào trị bệnh Quan thầy xin ít chua người trai vạm vở. Vua y lời tấu, quan thầy trị bệnh cung nga hết ốm, rồi dẫn lủ trai ấy theo mình, đặng vào đền mà tâu vua hay, các con mái đã sung sức mập mạp rồi. Vua thấy lủ trai ốm nhom như bầy nhái còn da bọc xương lấy làm lạ phán hỏi rằng Lủ nầy sao coi không giống người ta? Quan tấu: Chúng nó là xác thuốc hết nước cốt rồi. Vua nực cười phán rằng: Còn đề xác thuốc ấy làm chi hãy đổ ra ngoài hầm cho rảnh"
+
+&nbsp;&nbsp;&nbsp;&nbsp;Ông Dương-Thanh-Trai nói chơi với mấy kẻ mê dâm rằng ... Vua Diêm Vương chưa đòi sao các ngươi nóng nảy muốn đi chầu sớm vậy, 
+
+&nbsp;&nbsp;&nbsp;&nbsp;Than ôi! Việc ân ái có phải chăng là hang lửa không bờ đốt người thiêu rụi ? Chúng ta thủ xem truyện cây than trong Thất-Chơn-Nhơn Quả sau đây đề cùng suy gẫm.
 
