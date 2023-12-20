@@ -539,3 +539,43 @@ Bạch Tần Lão-Nhơn trong Dưởng.Chơn- Tập nhận xét bài thơ trên 
 &nbsp;&nbsp;&nbsp;&nbsp;Như đã nêu trên, sắc dục có sức mạnh quyến rủ bên ngoài nhưng bên trong thì vô cùng nguy hiểm, nguy hiểm bao nhiêu thì tai hại bấy nhiêu. Xưa nay từ bực vua quan cho đến dân hèn say mê tửu sắc thì sự nghiệp liều tan, hủy diệt thân hình. Người tu nay cũng vì nó mà bị vô minh che lấp, chịu khổ đời đời, dư luận cười chê. Vì bởi sắc dục nó nạo tinh thần nó tổn ngươn tinh, hao mòn ngươn khí. Nó là một món đồ độc hể ai dùng đến một cách bất chánh, bất thường thì hư thân hoại thể, lủng đoạn cang thường, hư danh tiết, tản gia sản loạn nhơn luân việc-việc đều tệ cũng bởi sắc mà ra,
 
 &nbsp;&nbsp;&nbsp;&nbsp;Ai biết giữ gìn chỗ sắc dục thì mới đặng bảo dưỡng xác thân, tinh thần mạnh khỏe. Nếu chẳng bảo trọng ắt trăm bệnh phát sanh mau vào cỏi chết Bệnh đây không do phong, hàn thủ thấp mà là bệnh của ái dục do cái phàm tâm, thức thần nó hay thương yêu việc thê ân tử ái, ham luyến vật dục hàng ngày làm cho khí huyết suy bại. Hể tinh khô huyết cạn thì con người phải bỏ xác thân này.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Kinh cựu ước có dạy rằng:
+
+> "Vì môi kẻ dâm dục đặt ra,
+>
+> Và miệng nó dịu hơn dầu,
+>
+> Nhưng rốt lại đắng như ngải cứu,
+>
+> Bén như gươm hai lưỡi,
+>
+> Chơn nó xuống chốn chết,
+>
+> Bước nó đụng đến âm phủ,"
+
+&nbsp;&nbsp;&nbsp;&nbsp;Và:
+
+> "Nàng dùng lắm lời êm dịu quyến dụ hắn
+>
+> Làm cho hắn sa ngả vì lời dua nịnh của môi miệng mình.
+>
+> Hắn liền đi theo nàng,
+>
+> Như một con bò đến lò cạo
+>
+> Như kẻ ngu dại bị cùm dẫn đi chịu hình phạt
+>
+> Như con chim bay a vào lưới,
+>
+> Mà không biết rằng nó rập sự sống mình.
+>
+> Dẫn xuống các phòng của sự chết,"
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sách Dưởng Chơn-Tập chép rằng: "Ôi! dầu khô đèn tắt, tủy hết người chết. Quán Sở Lầu Tần chẳng phải là chỗ vui, ấy là lưới rập hãm bắt con người. Xướng ca vô loại là chẳng phải người vui ấy là quỷ mị phá tan nhà cửa.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Người người đều sợ quỷ, duy không sợ thứ quỷ đội lốt ở trong nhà nó câu thần hồn con người. Người đều sợ cọp, duy không sợ thứ cọp ngủ chung với mình trên giường, nó ăn cốt tủy con người. Người đều sợ rắn, duy không sợ thứ rắn bao quấn người trong mền, nó hút khí huyết con người. Người đều sợ trộm cướp, duy không sợ thứ trộm cướp đoạt khi dương ban đêm nó hại tánh mạng con người. Sắc nó hại người lớn lắm thay!. . .
+
+&nbsp;&nbsp;&nbsp;&nbsp;Còn như nói rằng vợ con là hạnh phúc điều đó có đúng không? xin thưa: Đức chúa-Trời có phán rằng: "Nếu ai đến cùng ta mà không ghét vợ con và chính mạng sống của mình nữa thì không thể làm môn đồ ta."
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vậy người tu thử xét xem trong việc vợ mến con thương ái-ân khiên triền, sanh ra tranh danh đoạt lợi, tội lỗi đủ điều; trầm luân mãi-mãi. Người đời cho rằng: "Vợ chồng là oan gia con cháu là trái chủ" hay là: "Con là nợ, vợ là oan gia, của nhà là nghiệp báo" Vì thế trong việc ân tình tạo ra biết bao nhiêu phiền não, trong chỗ ái dục sanh ra biết bao oán hờn. Còn sống đây còn vợ còn chồng, thác rồi có khi thay chồng đối vợ Người ta thường nghỉ cho việc hồng trần tang thương dường ấy, như bèo giạt hoa trôi, như sáng rồi chiều, như trăng tròn rồi khuyết, tựa như tuồng hát bội, nào là vua tôi, nào là vợ chồng, cha con thay đổi liền
