@@ -9,13 +9,13 @@
     {
       "key": "tuyen-ngon-day-dao-cua-duc-ly-giao-tong",
       "name": "TUYÊN NGÔN DẠY ĐẠO CỦA ĐỨC LÝ GIÁO TÔNG",
-      "published": true,
+      "published": false,
       "origin": true
     },
     {
       "key": "chau-tri-chinh-dao",
       "name": "CHÂU TRI CHỈNH ĐẠO",
-      "published": true,
+      "published": false,
       "origin": true
     }
   ]
