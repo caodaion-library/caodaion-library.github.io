@@ -17,6 +17,12 @@
       "name": "CHÂU TRI CHỈNH ĐẠO",
       "published": false,
       "origin": true
+    },
+    {
+      "key": "thi-van-day-dao",
+      "name": "THI VĂN DẠY ĐẠO",
+      "published": true,
+      "origin": true
     }
   ]
 }
