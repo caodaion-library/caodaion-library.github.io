@@ -4,19 +4,29 @@
       "key": "le-nhac-tinh-hoa-va-nguoi-tu-trong-van-de-sac-duc",
       "name": "LỄ-NHẠC TINH HOA và NGƯỜI TU TRONG VẤN-ĐỀ SẮC DỤC",
       "published": true,
-      "origin": "1fBdDkEXVJj0nvyZyCwFbS9LNJUvRFaYN"
+      "origin": "1fBdDkEXVJj0nvyZyCwFbS9LNJUvRFaYN",
+      "cover": true
     },
     {
       "key": "tuyen-ngon-day-dao-cua-duc-ly-giao-tong",
       "name": "TUYÊN NGÔN DẠY ĐẠO CỦA ĐỨC LÝ GIÁO TÔNG",
       "published": false,
-      "origin": true
+      "origin": true,
+      "cover": true
     },
     {
       "key": "chau-tri-chinh-dao",
       "name": "CHÂU TRI CHỈNH ĐẠO",
       "published": false,
-      "origin": true
+      "origin": true,
+      "cover": true
+    },
+    {
+      "key": "thanh-thi-day-dao-buoi-dau",
+      "name": "THÁNH THI DẠY ĐẠO BUỔI ĐẦU",
+      "published": true,
+      "origin": false,
+      "cover": false
     }
   ]
 }
