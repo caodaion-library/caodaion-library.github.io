@@ -117,3 +117,114 @@
 > Đạo người vẹn vẽ mới thành Tiên.
 
 ---
+
+## 11.
+
+**<center>Tịch Đạo phái Nam</center>**
+
+> Thanh đạo tam khai thất ức niên,
+>
+> Thọ như địa huyễn thạnh hòa thiên
+>
+> Hư vô quy phục nhơn sanh khí,
+>
+> Tạo vạn cổ đoàn chiếu Phật duyên.
+
+---
+
+## 12.
+
+**<center>Tịch Đạo phái Nữ</center>**
+
+> Hương tâm nhứt phiến cận càn khôn,
+>
+> Huệ đức tu chơn độ dẫn hồn
+>
+> Nhứt niệm Quan Âm thùy bảo mạng,
+>
+> Thiên niên đãn phái thủ sanh tồn.
+
+---
+
+## 13.
+
+> Phải giữ chơn linh đặng trọn lành,
+>
+> Ngọc hư toàn ngự đấng tinh anh
+>
+> Luật điều cổ Phật không chừa tội,
+>
+> Hình phạt Chí Tôn chẳng vị tình
+>
+> Chánh trực kiên oai loài giả dối,
+>
+> Công bình vừa sức khẻ chơn thành.
+>
+> Mũi kim chẳng lọt xưa nay hẳn,
+>
+> Biết sơ xin khuyên cẩn thận mình.
+
+---
+
+## 14.
+
+> Hà nhựt quần sanh hiệp nhứt gia,
+>
+> Đạo đồng Vạn Quốc hưởng bình hòa,
+>
+> Đao binh tận diệt hưu tranh cạnh,
+>
+> Mỹ tục thuần lương hựu lạc ca,
+>
+> Kỷ nghệ công thương sinh hoạt kế,
+>
+> Văn chương hóa học hiệp đoàn khoa
+>
+> Nguyên nhân ác chiến do nhân tạo,
+>
+> Hồng huyết sanh linh mản hải hà.
+
+---
+
+## 15. 
+
+> Thuyền khơi đợi gió lướt giòng ngân,
+>
+> Dẫn khách Nam qua khỏi bến trần
+>
+> Nhuộm áo nâu sòng về Cực-Lạc,
+>
+> Trau gương trí huệ phủi đai cân,
+>
+> Cơ Trời đến buổi đời thay đổi,
+>
+> Đạo Thánh nhằm khi khách gội nhuần,
+>
+> Khổ hạnh dầu ai thìn một kiếp,
+>
+> Rừng tòng thoát tục sớm đưa chân.
+
+---
+
+## 16. 
+
+> Huỳnh lương một giấc cuộc đời in,
+>
+> Có trí có mưu phải xét mình,
+>
+> Danh lợi lớn là giành với giựt,
+>
+> Phú quí cao bởi mượn và xin,
+>
+> Trăm năm lẩn quẩn đường nhơn nghĩa,
+>
+> Một kiếp đeo đai mối nợ tình,
+>
+> Biết số biết căn tua biết phận,
+>
+> Đường xưa để bước lại Thiên-đình.
+
+--
+
+## 17.
+
