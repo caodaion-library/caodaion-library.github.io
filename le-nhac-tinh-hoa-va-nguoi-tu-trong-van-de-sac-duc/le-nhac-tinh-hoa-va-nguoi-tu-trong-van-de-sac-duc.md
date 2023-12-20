@@ -487,3 +487,45 @@ Nay tựa
 # <center>II. Sự quyến rủ của sắc dục</center>
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chúng ta thừa biết rằng sắc dục là lòng ham muốn sắc đẹp. Nó như những đóa hoa hồng rực rỡ dể lôi cuốn và cám dỗ con người có ý cầu chiếm hữu, hoặc lóe lên trong tư tưởng những mầm móng không hay. Phân tích chữ sắc ( 色 ) trong nho: sắc có bộ đao ở trên( 刀 ) Đao là khí giới để giết người. Vậy trong sắc có vật bén để chém đứt con người ra từng mảnh Bởi vậy có câu: "Hữu nhan sắc, hữu ác đức". Tuy nhiên sự ác được sự lộng lẫy quyến rủ che đậy bề ngoài như dưới hoa hồng có ẩn gai nhọn, nhưng khi lòng ham muốn của con người dấy lên như quên đi những gì đau khổ, đưa tay bẻ lấy cành hoa đẹp, vồ chụp những bóng sắc yêu thương ân ái mà không sợ gai đao bén nhọn. Ôi! tươi tốt nhưng nguy - hiểm. Bởi vậy Lữ-Động Tân có bài thơ diễn tả như vầy:
+
+> Nhị bát giai nhân thế tự tô,
+>
+> Yêu huyền lợi kiếm trảm ngu phu,
+>
+> Tuy nhiên bất kiến nhơn đầu lạc,
+>
+> Ám lý giao quân cốt tủy khô.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nghĩa là:
+
+> Hai tám gái tơ dạng mỹ miều,
+>
+> Lưng đeo gươm bén chém người yêu. (Người thương mình )
+>
+> Tuy là chẳng thấy đầu người rung,
+>
+> Thỏn mỏn hại chàng cốt tủy tiêu
+
+Bạch Tần Lão-Nhơn trong Dưởng.Chơn- Tập nhận xét bài thơ trên rằng:
+
+> " Ôi! Người bực trung niên sắp lên còn chẳng tin chắc lời này, hà huống là bọn thiếu niên, hà huống là kẻ thiếu-niên không biết gì! "
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sắc đẹp quyến rủ người tu bằng nhiều hình thức và người tu quan niệm rằng đó là những sự khảo sắc làm cho mình chồn chân thối bước tu hành. Nội khảo là do bởi tâm trần chưa dứt, sắc hiện bên trong, làm cho tâm hồn chẳng định, tư tưởng vẫn vơ, mơ màng trong giấc điệp ma sắc hiện đến trong chiêm bao khêu gợi ái ân, làm cho di thất, lần lần tinh ba suy nhược, sức khỏe kém dần, đường tu theo năm tháng si mê bị dải đải mỏi mòn.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Còn ngoại cảnh là hình dạng gái đẹp bên ngoài, chập chờn bóng sắc, buông lời ăn tiếng ái lả lướt ngọt ngào, cốt ý khiến cho người tu mề một tâm hồn tinh thần xao động. Nếu không được kềm chế, thì trước tiên sanh ra ý dâm, tư tưởng dục, rồi lần lần biến ra hành động, mở lối cho sắc tình xâm nhập mà quên mùi Đạo hạnh. Tinh tế và thâm thuý hơn, sắc đẹp thừa dịp người tu bị dập dồn thử thách nào là tai nạn thảm sầu thiệt thòi sa sút, nào là bệnh hoạn rên than v,v... tìm kiếm lời an ủi, giúp đỡ bạc tiền, phục dịch uống ăn... gây nhiều ân nghĩa, làm cho ta phải nghĩ đến việc nghĩa trả ăn đền. Mối tình cảm sẵn đó thêm đậm đà tha thiết; người nầy khiên triều người nọ, người nọ đà lụy người kia, riết rồi Thiên Đạo thối lui mà trở về thế tục.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sâu sắc và ý nghĩa hơn nữa, nếu người tu không hạn chế những câu văn thi phú khoe tài thơ từ trao đổi cảm thông thả lòng theo ngòi bút cho tâm sự phơi bài giữa hai thái cực, thì từ nghĩa xa đến nghĩa gần, dần dần đến cảm mến, tư tưởng buộc ràng, mộng mơ trần thể thì đường tu hành ắt phải chênh mãn lảng lơ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nói sao cho hết, tả sao cho cùng muôn ngàn điều quyến rủ của sắc đẹp. Truyện xưa vì một tư tưởng trần dục chưa dứt, mà người tu ai cũng | rõ tích Bà Vọng-Phu để tri nguyên thức tỉnh Gương Thích-Ca bị ma vương sắc đẹp cảm dụ dưới cội bồ đề ai cũng biết mà tập tánh quán tưởng định tâm.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nay sức quyến rủ của sắc trong buổi đời Hạ - Nguơn tận diệt cực kỳ khiếm lễ, nhưng Đấng Cha Lành không nở đề các con cái của Ngài đắm chìm trong vật dục. Ngài hội quần Tiên định luật cứu đời, khai Tam.Kỳ Phổ-Độ ban Đại An Xá kỳ ba, người tu vào Đạo Trời nhờ hồng phước ấy mà oan nghiệt tiêu tan, nợ duyên rảnh rỗi,nhờ Tân Luật nhiệm mầu, Tân-Pháp cao sâu mà tinh tấn tu hành thuyền tâm được vũng lái vượt qua mọi phong ba thử thách, nhờ gương luật pháp của Đức Giáo - Tông NUYỄN-NGỌC TƯƠNG mà nương lần đến cơ Đại-Đồng tuyệt khổ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Ấy là:
+
+> Lánh đường trần tục đến non tiên.
+>
+> Lấy nước nhành dương tưới lửa phiền,
+>
+> Đã chẳng phải duyên không phải nợ,
+>
+> Can chi con buộc tấm tình riêng,
