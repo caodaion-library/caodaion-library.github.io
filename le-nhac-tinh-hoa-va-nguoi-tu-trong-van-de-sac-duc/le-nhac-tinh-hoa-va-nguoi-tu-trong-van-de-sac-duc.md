@@ -1,5 +1,7 @@
 # <center>LỄ-NHẠC TINH HOA và NGƯỜI TU TRONG VẤN-ĐỀ SẮC DỤC</center>
 
+---
+
 # <center>LỜI GIỚI THIỆU</center>
 
 &nbsp;&nbsp;&nbsp;&nbsp;Kính giới thiệu cùng quí độc giả.
@@ -529,3 +531,11 @@ Bạch Tần Lão-Nhơn trong Dưởng.Chơn- Tập nhận xét bài thơ trên 
 > Đã chẳng phải duyên không phải nợ,
 >
 > Can chi con buộc tấm tình riêng,
+
+---
+
+# <center>III. Sự tai hại của sắc dục</center>
+
+&nbsp;&nbsp;&nbsp;&nbsp;Như đã nêu trên, sắc dục có sức mạnh quyến rủ bên ngoài nhưng bên trong thì vô cùng nguy hiểm, nguy hiểm bao nhiêu thì tai hại bấy nhiêu. Xưa nay từ bực vua quan cho đến dân hèn say mê tửu sắc thì sự nghiệp liều tan, hủy diệt thân hình. Người tu nay cũng vì nó mà bị vô minh che lấp, chịu khổ đời đời, dư luận cười chê. Vì bởi sắc dục nó nạo tinh thần nó tổn ngươn tinh, hao mòn ngươn khí. Nó là một món đồ độc hể ai dùng đến một cách bất chánh, bất thường thì hư thân hoại thể, lủng đoạn cang thường, hư danh tiết, tản gia sản loạn nhơn luân việc-việc đều tệ cũng bởi sắc mà ra,
+
+&nbsp;&nbsp;&nbsp;&nbsp;Ai biết giữ gìn chỗ sắc dục thì mới đặng bảo dưỡng xác thân, tinh thần mạnh khỏe. Nếu chẳng bảo trọng ắt trăm bệnh phát sanh mau vào cỏi chết Bệnh đây không do phong, hàn thủ thấp mà là bệnh của ái dục do cái phàm tâm, thức thần nó hay thương yêu việc thê ân tử ái, ham luyến vật dục hàng ngày làm cho khí huyết suy bại. Hể tinh khô huyết cạn thì con người phải bỏ xác thân này.
