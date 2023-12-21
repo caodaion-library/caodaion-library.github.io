@@ -218,4 +218,4 @@
 >
 > Luyện đặng tinh thông muôn tuổi thọ,
 >
-> Cửu tiên xuất nhập cũng như nhà.
+> Cửa tiên xuất nhập cũng như nhà.
