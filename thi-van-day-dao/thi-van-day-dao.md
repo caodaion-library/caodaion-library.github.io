@@ -200,10 +200,22 @@
 
 ## 11.
 
-> Cương tỏa đương thờiddax giải vây,
+> Cương tỏa đương thời đã giải vây,
 >
 > Đừng mơ căn nghiệt một đời này.
 >
 > Hữu duyên độ thấu nguồn Chơn Đạo,
 >
 > Tu niệm khuyên bền chí chớ lay.
+
+---
+
+## 12.
+
+> Một ngày thỏn mỏn một ngày qua,
+>
+> Tiên Phật nơi mình phải ở xa.
+>
+> Luyện đặng tinh thông muôn tuổi thọ,
+>
+> Cửu tiên xuất nhập cũng như nhà.
