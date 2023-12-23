@@ -362,7 +362,20 @@ __<center>* * * * *</center>__
 >
 > Trăm năm chưa bẵng nên một Đức,
 >
-> Tấn nẻo chông hai khá lựa dèo.
+> Tấn nẻo chông gai khá lựa dèo.
 
 ---
 
+## 25.
+
+> Lựa dèo, lựa thế độ nhơn sanh,
+>
+> Khó dễ Thầy cho hiểu ngọn ngành.
+>
+> Ám muội thì nhiều, mưu trí ít.
+>
+> Đường Tiên chẳng bước, đọa thì đành.
+
+---
+
+## 
