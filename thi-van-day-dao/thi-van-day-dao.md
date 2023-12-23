@@ -1,6 +1,6 @@
 # <center>THI VĂN DẠY ĐẠO</center>
 
-<center>* * * * *</center>
+__<center>* * * * *</center>__
 
 ---
 
@@ -219,3 +219,163 @@
 > Luyện đặng tinh thông muôn tuổi thọ,
 >
 > Cửa tiên xuất nhập cũng như nhà.
+
+---
+
+## 13.
+
+> Một Trời một đất một nhà riêng,
+>
+> Dạy dỗ nhơn sanh đặng dạ hiền.
+>
+> Cầm mối Thiên cơ lo cứu chúng,
+>
+> Đạo người vẹn vẻ mới thành Tiên.
+
+---
+
+## 14.
+
+> Mơ màng chử khỏi lụy phồn hoa,
+>
+> Chưa biết nên thân tính sắm nhà.
+>
+> Cải hạnh đối người về tập thử,
+>
+> Tháng sau sẽ đến trước trình Ta.
+
+---
+
+## 15.
+
+> Trình Ta, Ta phải đỡ nâng chơn,
+>
+> Khuyên một điều con khá giảm hờn.
+>
+> Hễ ghét người thì Trời ghét lại,
+>
+> Ghét người, Trời ghét lẽ nào hơn.
+
+---
+
+## 16.
+
+> Nào hơn vui thú đức tài lo,
+>
+> Sẵn gối, sẵn chăn cứ xuống đò.
+>
+> Người cửa còn cha, còn chú, Bác,
+>
+> Làm gương cho đáng mới nên trò.
+
+---
+
+## 17. 
+
+> Nên trò đạo đức dễ gì đâu,
+>
+> Vui chẳng vui, sầu chẳng dám sầu.
+>
+> Cái khổ của đời mình ước vọng,
+>
+> Cái chê của chúng lại nài cầu.
+
+...
+
+## 18.
+
+> Ký thành một cuốn gọi Thiên thơ,
+>
+> Khai Đạo muôn năm trước định giờ,
+>
+> May bước phải gìn cho mạnh trí,
+>
+> Nắm đuôi phướng phụng đến dương bờ.
+
+---
+
+## 19.
+
+> Thơm tho chi cũng vốn mùi đời,
+>
+> Chưa kẻ dùng nên của để chơi.
+>
+> Mua bán chọn lừa như buổi chợ,
+>
+> Về nhà chưa tối đã qua đời.
+
+---
+
+## 20.
+
+> Đinh ninh Thần dặn trẻ đôi lời,
+>
+> Mình biết Đạo mình giữ đó thôi.
+>
+> Mặc kẻ thường tình ngu biếm nhẽ,
+>
+> Phải coi nên chỗ để nên lời.
+
+---
+
+## 21. 
+
+> Ngừa thuyền Thầy đợi kẻ sang chơn,
+>
+> Khổ hạnh khuyên con chớ dạ hờn.
+>
+> Sắm nghiệp trần gian còn phải khó,
+>
+> Lựa là nghi trưởng tại Bồng sơn.
+
+---
+
+## 22.
+
+> Hay cho kẻ sĩ biết tu hành,
+>
+> Hành ấy thì thân chẳng mến danh.
+>
+> Danh vốn là bùa mê muội thế,
+>
+> Thế không Đạo Đức thế không thành
+
+---
+
+## 23.
+
+> Mưa nắng thương thân chịu lắm lần,
+>
+> Đành đem Đức gởi tại Chiên tân.
+>
+> Thanh cao là biết ngon dưa muối,
+>
+> Hơn ngự lầu Yên, ngó đảnh Tần.
+
+---
+
+## 24.
+
+> Bát nhã khuyên con trở mái chèo,
+>
+> Thìn lòng thương lấy chúng sanh eo.
+>
+> Trăm năm chưa bẵng nên một Đức,
+>
+> Tấn nẻo chông gai khá lựa dèo.
+
+---
+
+## 25.
+
+> Lựa dèo, lựa thế độ nhơn sanh,
+>
+> Khó dễ Thầy cho hiểu ngọn ngành.
+>
+> Ám muội thì nhiều, mưu trí ít.
+>
+> Đường Tiên chẳng bước, đọa thì đành.
+
+---
+
+## 
