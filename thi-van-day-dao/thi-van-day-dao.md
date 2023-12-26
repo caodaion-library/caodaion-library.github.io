@@ -399,3 +399,63 @@ __<center>* * * * *</center>__
 > Rồng rắn cùng đời rồng hóa rắn,
 >
 > Vinh huê ngó lại giấc mơ màng.
+
+---
+
+## 28.
+
+> Sánh vai Sào Phủ ẩn danh xưa,
+>
+> Vì nẻo lợi danh cũng đã thừa.
+>
+> Mau bước lui lần qua cõi tục,
+>
+> Cười, than, vui, khóc thấy hay chưa?
+
+---
+
+# 29.
+
+> Nghe nghe thì lắm tiếng hiền lương,
+>
+> Đạo đức còn tua giữ một đường.
+>
+> Biển đổi, non dời, đời phải tuyệt,
+>
+> Đức cao bền vững khó cân lường.
+
+---
+
+## 30.
+
+> Bài Đời ai khéo sắm Đời đây,
+>
+> Để quỉ, để ma ở cả bầy.
+>
+> Lẩn bẩn cứ theo toan cám dỗ,
+>
+> Làm cho nên nỗi Đạo xa Thầy.
+
+---
+
+## 31.
+
+> Sắc Trời đã đến tận nơi tay,
+>
+> Cực nhọc khuyên con chớ dạ dài.
+>
+> Lập Đạo dầu nêu ngàn thuở để,
+>
+> Nêu danh hậu thế tiếng bền dai.
+
+---
+
+## 32.
+
+> Từng lo tu luyện bấy lâu nay,
+>
+> Chuộng Đạo từ đây đã gặp Thầy.
+>
+> Một chức giáo dân tua lãnh lịnh,
+>
+> Làm cho Đợi tệ hóa ra hay.
