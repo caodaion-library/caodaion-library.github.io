@@ -3,7 +3,7 @@
     {
       "key": "le-nhac-tinh-hoa-va-nguoi-tu-trong-van-de-sac-duc",
       "name": "LỄ-NHẠC TINH HOA và NGƯỜI TU TRONG VẤN-ĐỀ SẮC DỤC",
-      "published": true,
+      "published": false,
       "origin": "1fBdDkEXVJj0nvyZyCwFbS9LNJUvRFaYN",
       "cover": true
     },
@@ -18,12 +18,25 @@
       "key": "chau-tri-chinh-dao",
       "name": "CHÂU TRI CHỈNH ĐẠO",
       "published": false,
+      "origin": true
+    },
+    {
+      "key": "thi-van-day-dao",
+      "name": "THI VĂN DẠY ĐẠO",
+      "published": true,
       "origin": true,
-      "cover": true
+      "cover": false
     },
     {
       "key": "thanh-thi-day-dao-buoi-dau",
       "name": "THÁNH THI DẠY ĐẠO BUỔI ĐẦU",
+      "published": true,
+      "origin": false,
+      "cover": false
+    },
+    {
+      "key": "5-loi-khuyen-sau-so-nhap-mon",
+      "name": "5 Lời Khuyên Sau Sớ Nhập Môn",
       "published": true,
       "origin": false,
       "cover": false
