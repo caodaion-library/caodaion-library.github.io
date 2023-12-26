@@ -653,3 +653,61 @@ __<center>* * * * *</center>__
 > Tặng phong quá tiếng chớ nhờ ai.
 
 ---
+
+## 49.
+
+> Người đâu biết đặng tấc lòng mình,
+>
+> Họa hỏi đến Trời mới biết linh.
+>
+> Thiệt thiệt hư hư vì mặt thịt,
+>
+> Thôi thì đợi chết biết tiền trình.
+
+---
+
+## 50.
+
+> Tiền trình Thầy dạy trước con tường,
+>
+> Đợi hạ sang năm mới tuyển lương.
+>
+> Năm bảy năm sau nên nghiệp lớn,
+>
+> Đến chừng ấy khá Đạo lo lường,
+
+---
+
+## 51.
+
+> Lo lường cho rõ thấu Thiên cơ,
+>
+> Biết đặng thì tua tính kịp giờ.
+>
+> Khuyến thiện đã nhiều công cực nhọc,
+>
+> Toan lo cho vẹn Đạo đồ thơ.
+
+---
+
+## 52.
+
+> Đồ thơ quằn quại gánh nghiên vai,
+>
+> Mặc khách làng văn nhọc chớ nài.
+>
+> Nghiệp nước nỗi nhà còn bận bịu,
+>
+> Thanh nhàn chưa phải buổi xem mai.
+
+---
+
+## 53.
+
+> Xem mai trông gặp trổ hai lần,
+>
+> Như đức Khổng xưa muốn thấy Lân.
+>
+> Hờn gió giận mưa hoài trí tính,
+>
+> Thâu niên chẳng đoái chút tinh thần.
