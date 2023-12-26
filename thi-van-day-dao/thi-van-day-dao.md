@@ -378,4 +378,24 @@ __<center>* * * * *</center>__
 
 ---
 
-## 
+## 26.
+
+> Vong xu trọn cả một Càn Khôn,
+>
+> Hết kiếp thịt xương tới kiếp hồn.
+>
+> Ngoảnh lại hỏi Người là chắc đó,
+>
+> Trăm năm là tuổi chết rồi chôn.
+
+---
+
+## 27.
+
+> Ra vòng thế tục ít người toan,
+>
+> Vì chẳng ưa mua một chữ nhàn.
+>
+> Rồng rắn cùng đời rồng hóa rắn,
+>
+> Vinh huê ngó lại giấc mơ màng.
