@@ -459,3 +459,197 @@ __<center>* * * * *</center>__
 > Một chức giáo dân tua lãnh lịnh,
 >
 > Làm cho Đợi tệ hóa ra hay.
+
+---
+
+## 33.
+
+> Đức cao thì mới đáng nên Người,
+>
+> Đức thắng tài kia dễ mấy mươi.
+>
+> Có đức, có tài giềng Đạo trọng,
+>
+> Không tài không đức hóa không thời.
+
+---
+
+## 34.
+
+> Nhơn là đầu hết các hành tàng,
+>
+> Cũng bởi vì nhơn, dân hóa quan.
+>
+> Dân trí có nhơn nhà nước trị,
+>
+> Nước nhà nhơn thiệt một cơ quan.
+
+---
+
+## 35.
+
+> Trời hằng thương mến lũ nhơn sanh,
+>
+> Giận nỗi cưu cưu ở bạc tình.
+>
+> Ép trí sợ trôi trôi khó níu,
+>
+> Thương thì để dạ dụng oai linh.
+
+---
+
+## 36.
+
+> Bay đến Hồ Dương phụng gáy chiều,
+>
+> Thần, Tiên giáng thế biết bao nhiêu.
+>
+> Trở chơn ít kẻ lo đi ngược,
+>
+> Bước đọa xem qua dấu dập dìu.
+
+---
+
+## 37.
+
+> Dập dìu lắm kẻ ngó Thiên đường,
+>
+> Buổi thế không lo níu nhánh dương.
+>
+> Dương thạnh thì hay đời mạt kiếp,
+>
+> Nên thân ở giữa cuộc tang thương.
+
+---
+
+## 38.
+
+> Tang thương đã biết cuộc hầu gần
+>
+> Bắc hải rồi sau lại hóa sân.
+>
+> Thanh thế con người toan cải ác,
+>
+> Tùng theo nhơn cách đặng phong thần.
+
+---
+
+# 39.
+
+> Phong thần đừng tưởng chuyện mơ hồ,
+>
+> Giữa biển ai từng gặp Lão Tô?
+>
+> Mượn thế đặng toan phương giác thế.
+>
+> Cũng như nương viết của chàng Hồ.
+
+---
+
+## 40.
+
+> Chia đôi lở ở, lở khi về,
+>
+> Cách trở một mình biết mấy quê!
+>
+> Thạnh bỏ, suy đương lao khổ phận,
+>
+> Cũng như Bạch Khỉ đến hôn mê.
+
+---
+
+## 41.
+
+> Hôn mê chẳng quản một thân hiền,
+>
+> Tâm niệm từ nhiên đặng thấy Tiên.
+>
+> Thử để hỏi tâm, tâm sẽ dạy,
+>
+> Rằng trong thế giới Lão cao quyền.
+
+---
+
+## 42.
+
+> Cao quyền khó kiếm đặng ngôi cao,
+>
+> Đạo đức gầy nền đã phải hồi.
+>
+> Mượn của trần gian lưu chất lại,
+>
+> Thiên niên còn mặt đứng gầy trời.
+
+---
+
+## 43.
+
+> Ngu vì đạo đức ấy ngu hiền,
+>
+> Thành dạ thì toan đến cảnh Tiên.
+>
+> Nước mắt chưa lau cơn kiếp trái,
+>
+> Có công phổ độ giải tiền khiên.
+
+---
+
+## 44.
+
+> Tiền khiên đã mãn nghiệp căn xưa,
+>
+> Phải biết ăn năn chiếm Thượng thừa.
+>
+> Một kiếp muối dưa xong kiếp nợ,
+>
+> Cuộc đời oan nghiệt thấy rồi chưa.
+
+---
+
+## 45.
+
+> Chưa rồi nửa kiếp lắm lo lường,
+>
+> Thấy kẻ lòng thành Lão cũng thương.
+>
+> Như muốn an vui theo lẽ Đạo,
+>
+> Từ từ đựng vọng vị cao lương.
+
+---
+
+## 46.
+
+> Cao lương, mỹ vị hại thân phàm,
+>
+> Hỏi thử thế đời mấy món tham.
+>
+> Cao chức, vợ nhiều, ăn lớn đũa,
+>
+> Thầm lo lự tứ với ưu tam.
+
+---
+
+## 47.
+
+> Tam ưu Bàng cử trắng đầu non,
+>
+> Mua lấy chức quan, đức phải mòn.
+>
+> Chí bẵng một bầu đầy Nhựt Nguyệt,
+>
+> Thông minh miệng thế mặc dòn đon.
+
+---
+
+## 48.
+
+> Dò đon cho rõ nẻo Thiên thai,
+>
+> Cái tiếng tài khen chẳng phải tài.
+>
+> Mình Thánh mình Hiền mình biết lấy,
+>
+> Tặng phong quá tiếng chớ nhờ ai.
+
+---
