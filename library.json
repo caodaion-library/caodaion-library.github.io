@@ -33,6 +33,13 @@
       "published": true,
       "origin": false,
       "cover": false
+    },
+    {
+      "key": "5-loi-khuyen-sau-so-nhap-mon",
+      "name": "5 Lời Khuyên Sau Sớ Nhập Môn",
+      "published": true,
+      "origin": false,
+      "cover": false
     }
   ]
 }
