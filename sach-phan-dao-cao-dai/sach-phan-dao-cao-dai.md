@@ -39,9 +39,13 @@ __<center>HỘI-THÁNH</center>__
 <center>
 
   __Thánh-địa Bến tre,__
+  
   *ngày 06 tháng 05 năm Tân Hợi (1971)*
+  
   Nho Chưởng-Pháp
+  
   NGUYỄN-KHẮC-BÍCH
+  
   Kính-bút
   
 </center>
