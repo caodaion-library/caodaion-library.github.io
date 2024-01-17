@@ -711,3 +711,183 @@ __<center>* * * * *</center>__
 > Hờn gió giận mưa hoài trí tính,
 >
 > Thâu niên chẳng đoái chút tinh thần.
+
+---
+
+## 54.
+
+> Tinh thần đầy xác mới tinh anh,
+>
+> Đừng vướng nẻo công với mối danh.
+>
+> Thường hứng gió đông tua biết gió,
+>
+> Đừng trương cánh nhạn bị tan tành.
+
+---
+
+## 55.
+
+> Tan tành khó nỗi kết làm nguyên,
+>
+> Như chỗ non cao muốn hóa thuyền.
+>
+> Mình biết phận mình an thú vị,
+>
+> Chẳng phen bằng Phật cũng là Tiên.
+
+---
+
+## 56.
+
+> Nho nhã con tua tập tánh tình,
+>
+> Dưới đời đừng tưởng một mình lanh.
+>
+> Một câu thất đức thiên niên đọa,
+>
+> Nhiều nỗi trầm luân bởi ngọn ngành.
+
+---
+
+## 57.
+
+> Cho lan mọc lẫn cỏ hoa thường,
+>
+> Chẳng để mũi gần chẳng biết hương.
+>
+> Hiền ngỏ rủi sanh đời bạo ngược,
+>
+> Dầu trong Thánh đức cũng ra thường.
+
+---
+
+## 58.
+
+> CAO ĐÀI tá thế đến phàm gian,
+>
+> Bạch ngọc Huỳnh kim cũng chẳng màng.
+>
+> Chìu lụy đôi phen xem quá tục,
+>
+> Nghĩ không đổ lụy phải cười khan.
+
+---
+
+## 59.
+
+> Cười khan mà khóc bởi thương bây,
+>
+> Chẳng mất một con nghiệt cả bầy.
+>
+> Biết phận già không chờ chống gậy,
+>
+> Nương theo con dại mới ra vầy.
+
+---
+
+## 60.
+
+> Lòng lành là vốn có căn xưa,
+>
+> Bao quản lợi danh chẳng dám chừa.
+>
+> Nỗi phận, nỗi nhà còn biến đổi,
+>
+> Thương mình há nghĩ phận mình xưa.
+
+---
+
+## 61.
+
+> Mình xưa chưa kẻ độ nên phàm,
+>
+> PHải ngó tâm mình Đạo mới ham.
+>
+> Phải phải cùng đời đừng sửa quấy,
+>
+> Quấy nhiều tức quỉ dục mình tham.
+
+---
+
+## 62.
+
+> Yến Tử thà xưa lúc vận cùng,
+>
+> Còn mang dép rách đến Quang Trung.
+>
+> Nay con chưa đủ thông đường Đạo,
+>
+> Cứ ngón theo chân Lão tháp tùng.
+
+---
+
+## 63.
+
+> Trữ đức còn hơn muốn trữ vàng,
+>
+> Giàu sang chẳng chuộc gánh giang san.
+>
+> Thế đời càng dữ càng kiên đức,
+>
+> Võ lực hùng oai cũng chẳng màng.
+
+---
+
+## 64.
+
+> Trước lâm chứa đặng bảy ông Hiền,
+>
+> Vì bỏ tục trần mến cảnh Tiên.
+>
+> Hồng cấu đã chui thân phải vấy,
+>
+> Hơn thua cười kẻ biết nơi tiền.
+
+---
+
+## 65. 
+
+> Cao ngôi chưng Đạo chẳng cao quyền,
+>
+> Mở lối dắt người đến cảnh duyên.
+>
+> Ham hết công danh mòn mỏi đức,
+>
+> Cũng như ham chở khẳm khuôn thuyền.
+
+---
+
+## 66.
+
+> Khuôn thuyền Bát nhã chẳng hề chìm,
+>
+> Nối quá như bông, nặng quá kim.
+>
+> Có Đạo trong muôn ngồi cũng đủ.
+>
+> Không duyên một đứa cũng là chìm.
+
+---
+
+## 67.
+
+> Thiên cơ đã lộ lúc khai Trời,
+>
+> Kêu khách phàm trần đã hụt hơi.
+>
+> Cứ mến vinh huê cùng lợi lộc,
+>
+> Chẳng lo kiếp thác đến gần nơi.
+
+---
+
+## 68.
+
+> Gần nơi Tiên cảnh phải xa pham,
+>
+> Cái kiếp trần này trẻ chớ ham.
+>
+> Một miếng đỉnh chung trăm giọt thảm,
+>
+> Phải toan lui gót tránh vòng tham.
