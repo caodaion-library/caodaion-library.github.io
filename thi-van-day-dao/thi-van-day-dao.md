@@ -831,3 +831,63 @@ __<center>* * * * *</center>__
 > Thế đời càng dữ càng kiên đức,
 >
 > Võ lực hùng oai cũng chẳng màng.
+
+---
+
+## 64.
+
+> Trước lâm chứa đặng bảy ông Hiền,
+>
+> Vì bỏ tục trần mến cảnh Tiên.
+>
+> Hồng cấu đã chui thân phải vấy,
+>
+> Hơn thua cười kẻ biết nơi tiền.
+
+---
+
+## 65. 
+
+> Cao ngôi chưng Đạo chẳng cao quyền,
+>
+> Mở lối dắt người đến cảnh duyên.
+>
+> Ham hết công danh mòn mỏi đức,
+>
+> Cũng như ham chở khẳm khuôn thuyền.
+
+---
+
+## 66.
+
+> Khuôn thuyền Bát nhã chẳng hề chìm,
+>
+> Nối quá như bông, nặng quá kim.
+>
+> Có Đạo trong muôn ngồi cũng đủ.
+>
+> Không duyên một đứa cũng là chìm.
+
+---
+
+## 67.
+
+> Thiên cơ đã lộ lúc khai Trời,
+>
+> Kêu khách phàm trần đã hụt hơi.
+>
+> Cứ mến vinh huê cùng lợi lộc,
+>
+> Chẳng lo kiếp thác đến gần nơi.
+
+---
+
+## 68.
+
+> Gần nơi Tiên cảnh phải xa pham,
+>
+> Cái kiếp trần này trẻ chớ ham.
+>
+> Một miếng đỉnh chung trăm giọt thảm,
+>
+> Phải toan lui gót tránh vòng tham.
