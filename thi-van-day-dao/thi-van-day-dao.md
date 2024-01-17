@@ -378,4 +378,516 @@ __<center>* * * * *</center>__
 
 ---
 
-## 
+## 26.
+
+> Vong xu trọn cả một Càn Khôn,
+>
+> Hết kiếp thịt xương tới kiếp hồn.
+>
+> Ngoảnh lại hỏi Người là chắc đó,
+>
+> Trăm năm là tuổi chết rồi chôn.
+
+---
+
+## 27.
+
+> Ra vòng thế tục ít người toan,
+>
+> Vì chẳng ưa mua một chữ nhàn.
+>
+> Rồng rắn cùng đời rồng hóa rắn,
+>
+> Vinh huê ngó lại giấc mơ màng.
+
+---
+
+## 28.
+
+> Sánh vai Sào Phủ ẩn danh xưa,
+>
+> Vì nẻo lợi danh cũng đã thừa.
+>
+> Mau bước lui lần qua cõi tục,
+>
+> Cười, than, vui, khóc thấy hay chưa?
+
+---
+
+# 29.
+
+> Nghe nghe thì lắm tiếng hiền lương,
+>
+> Đạo đức còn tua giữ một đường.
+>
+> Biển đổi, non dời, đời phải tuyệt,
+>
+> Đức cao bền vững khó cân lường.
+
+---
+
+## 30.
+
+> Bài Đời ai khéo sắm Đời đây,
+>
+> Để quỉ, để ma ở cả bầy.
+>
+> Lẩn bẩn cứ theo toan cám dỗ,
+>
+> Làm cho nên nỗi Đạo xa Thầy.
+
+---
+
+## 31.
+
+> Sắc Trời đã đến tận nơi tay,
+>
+> Cực nhọc khuyên con chớ dạ dài.
+>
+> Lập Đạo dầu nêu ngàn thuở để,
+>
+> Nêu danh hậu thế tiếng bền dai.
+
+---
+
+## 32.
+
+> Từng lo tu luyện bấy lâu nay,
+>
+> Chuộng Đạo từ đây đã gặp Thầy.
+>
+> Một chức giáo dân tua lãnh lịnh,
+>
+> Làm cho Đợi tệ hóa ra hay.
+
+---
+
+## 33.
+
+> Đức cao thì mới đáng nên Người,
+>
+> Đức thắng tài kia dễ mấy mươi.
+>
+> Có đức, có tài giềng Đạo trọng,
+>
+> Không tài không đức hóa không thời.
+
+---
+
+## 34.
+
+> Nhơn là đầu hết các hành tàng,
+>
+> Cũng bởi vì nhơn, dân hóa quan.
+>
+> Dân trí có nhơn nhà nước trị,
+>
+> Nước nhà nhơn thiệt một cơ quan.
+
+---
+
+## 35.
+
+> Trời hằng thương mến lũ nhơn sanh,
+>
+> Giận nỗi cưu cưu ở bạc tình.
+>
+> Ép trí sợ trôi trôi khó níu,
+>
+> Thương thì để dạ dụng oai linh.
+
+---
+
+## 36.
+
+> Bay đến Hồ Dương phụng gáy chiều,
+>
+> Thần, Tiên giáng thế biết bao nhiêu.
+>
+> Trở chơn ít kẻ lo đi ngược,
+>
+> Bước đọa xem qua dấu dập dìu.
+
+---
+
+## 37.
+
+> Dập dìu lắm kẻ ngó Thiên đường,
+>
+> Buổi thế không lo níu nhánh dương.
+>
+> Dương thạnh thì hay đời mạt kiếp,
+>
+> Nên thân ở giữa cuộc tang thương.
+
+---
+
+## 38.
+
+> Tang thương đã biết cuộc hầu gần
+>
+> Bắc hải rồi sau lại hóa sân.
+>
+> Thanh thế con người toan cải ác,
+>
+> Tùng theo nhơn cách đặng phong thần.
+
+---
+
+# 39.
+
+> Phong thần đừng tưởng chuyện mơ hồ,
+>
+> Giữa biển ai từng gặp Lão Tô?
+>
+> Mượn thế đặng toan phương giác thế.
+>
+> Cũng như nương viết của chàng Hồ.
+
+---
+
+## 40.
+
+> Chia đôi lở ở, lở khi về,
+>
+> Cách trở một mình biết mấy quê!
+>
+> Thạnh bỏ, suy đương lao khổ phận,
+>
+> Cũng như Bạch Khỉ đến hôn mê.
+
+---
+
+## 41.
+
+> Hôn mê chẳng quản một thân hiền,
+>
+> Tâm niệm từ nhiên đặng thấy Tiên.
+>
+> Thử để hỏi tâm, tâm sẽ dạy,
+>
+> Rằng trong thế giới Lão cao quyền.
+
+---
+
+## 42.
+
+> Cao quyền khó kiếm đặng ngôi cao,
+>
+> Đạo đức gầy nền đã phải hồi.
+>
+> Mượn của trần gian lưu chất lại,
+>
+> Thiên niên còn mặt đứng gầy trời.
+
+---
+
+## 43.
+
+> Ngu vì đạo đức ấy ngu hiền,
+>
+> Thành dạ thì toan đến cảnh Tiên.
+>
+> Nước mắt chưa lau cơn kiếp trái,
+>
+> Có công phổ độ giải tiền khiên.
+
+---
+
+## 44.
+
+> Tiền khiên đã mãn nghiệp căn xưa,
+>
+> Phải biết ăn năn chiếm Thượng thừa.
+>
+> Một kiếp muối dưa xong kiếp nợ,
+>
+> Cuộc đời oan nghiệt thấy rồi chưa.
+
+---
+
+## 45.
+
+> Chưa rồi nửa kiếp lắm lo lường,
+>
+> Thấy kẻ lòng thành Lão cũng thương.
+>
+> Như muốn an vui theo lẽ Đạo,
+>
+> Từ từ đựng vọng vị cao lương.
+
+---
+
+## 46.
+
+> Cao lương, mỹ vị hại thân phàm,
+>
+> Hỏi thử thế đời mấy món tham.
+>
+> Cao chức, vợ nhiều, ăn lớn đũa,
+>
+> Thầm lo lự tứ với ưu tam.
+
+---
+
+## 47.
+
+> Tam ưu Bàng cử trắng đầu non,
+>
+> Mua lấy chức quan, đức phải mòn.
+>
+> Chí bẵng một bầu đầy Nhựt Nguyệt,
+>
+> Thông minh miệng thế mặc dòn đon.
+
+---
+
+## 48.
+
+> Dò đon cho rõ nẻo Thiên thai,
+>
+> Cái tiếng tài khen chẳng phải tài.
+>
+> Mình Thánh mình Hiền mình biết lấy,
+>
+> Tặng phong quá tiếng chớ nhờ ai.
+
+---
+
+## 49.
+
+> Người đâu biết đặng tấc lòng mình,
+>
+> Họa hỏi đến Trời mới biết linh.
+>
+> Thiệt thiệt hư hư vì mặt thịt,
+>
+> Thôi thì đợi chết biết tiền trình.
+
+---
+
+## 50.
+
+> Tiền trình Thầy dạy trước con tường,
+>
+> Đợi hạ sang năm mới tuyển lương.
+>
+> Năm bảy năm sau nên nghiệp lớn,
+>
+> Đến chừng ấy khá Đạo lo lường,
+
+---
+
+## 51.
+
+> Lo lường cho rõ thấu Thiên cơ,
+>
+> Biết đặng thì tua tính kịp giờ.
+>
+> Khuyến thiện đã nhiều công cực nhọc,
+>
+> Toan lo cho vẹn Đạo đồ thơ.
+
+---
+
+## 52.
+
+> Đồ thơ quằn quại gánh nghiên vai,
+>
+> Mặc khách làng văn nhọc chớ nài.
+>
+> Nghiệp nước nỗi nhà còn bận bịu,
+>
+> Thanh nhàn chưa phải buổi xem mai.
+
+---
+
+## 53.
+
+> Xem mai trông gặp trổ hai lần,
+>
+> Như đức Khổng xưa muốn thấy Lân.
+>
+> Hờn gió giận mưa hoài trí tính,
+>
+> Thâu niên chẳng đoái chút tinh thần.
+
+---
+
+## 54.
+
+> Tinh thần đầy xác mới tinh anh,
+>
+> Đừng vướng nẻo công với mối danh.
+>
+> Thường hứng gió đông tua biết gió,
+>
+> Đừng trương cánh nhạn bị tan tành.
+
+---
+
+## 55.
+
+> Tan tành khó nỗi kết làm nguyên,
+>
+> Như chỗ non cao muốn hóa thuyền.
+>
+> Mình biết phận mình an thú vị,
+>
+> Chẳng phen bằng Phật cũng là Tiên.
+
+---
+
+## 56.
+
+> Nho nhã con tua tập tánh tình,
+>
+> Dưới đời đừng tưởng một mình lanh.
+>
+> Một câu thất đức thiên niên đọa,
+>
+> Nhiều nỗi trầm luân bởi ngọn ngành.
+
+---
+
+## 57.
+
+> Cho lan mọc lẫn cỏ hoa thường,
+>
+> Chẳng để mũi gần chẳng biết hương.
+>
+> Hiền ngỏ rủi sanh đời bạo ngược,
+>
+> Dầu trong Thánh đức cũng ra thường.
+
+---
+
+## 58.
+
+> CAO ĐÀI tá thế đến phàm gian,
+>
+> Bạch ngọc Huỳnh kim cũng chẳng màng.
+>
+> Chìu lụy đôi phen xem quá tục,
+>
+> Nghĩ không đổ lụy phải cười khan.
+
+---
+
+## 59.
+
+> Cười khan mà khóc bởi thương bây,
+>
+> Chẳng mất một con nghiệt cả bầy.
+>
+> Biết phận già không chờ chống gậy,
+>
+> Nương theo con dại mới ra vầy.
+
+---
+
+## 60.
+
+> Lòng lành là vốn có căn xưa,
+>
+> Bao quản lợi danh chẳng dám chừa.
+>
+> Nỗi phận, nỗi nhà còn biến đổi,
+>
+> Thương mình há nghĩ phận mình xưa.
+
+---
+
+## 61.
+
+> Mình xưa chưa kẻ độ nên phàm,
+>
+> PHải ngó tâm mình Đạo mới ham.
+>
+> Phải phải cùng đời đừng sửa quấy,
+>
+> Quấy nhiều tức quỉ dục mình tham.
+
+---
+
+## 62.
+
+> Yến Tử thà xưa lúc vận cùng,
+>
+> Còn mang dép rách đến Quang Trung.
+>
+> Nay con chưa đủ thông đường Đạo,
+>
+> Cứ ngón theo chân Lão tháp tùng.
+
+---
+
+## 63.
+
+> Trữ đức còn hơn muốn trữ vàng,
+>
+> Giàu sang chẳng chuộc gánh giang san.
+>
+> Thế đời càng dữ càng kiên đức,
+>
+> Võ lực hùng oai cũng chẳng màng.
+
+---
+
+## 64.
+
+> Trước lâm chứa đặng bảy ông Hiền,
+>
+> Vì bỏ tục trần mến cảnh Tiên.
+>
+> Hồng cấu đã chui thân phải vấy,
+>
+> Hơn thua cười kẻ biết nơi tiền.
+
+---
+
+## 65. 
+
+> Cao ngôi chưng Đạo chẳng cao quyền,
+>
+> Mở lối dắt người đến cảnh duyên.
+>
+> Ham hết công danh mòn mỏi đức,
+>
+> Cũng như ham chở khẳm khuôn thuyền.
+
+---
+
+## 66.
+
+> Khuôn thuyền Bát nhã chẳng hề chìm,
+>
+> Nối quá như bông, nặng quá kim.
+>
+> Có Đạo trong muôn ngồi cũng đủ.
+>
+> Không duyên một đứa cũng là chìm.
+
+---
+
+## 67.
+
+> Thiên cơ đã lộ lúc khai Trời,
+>
+> Kêu khách phàm trần đã hụt hơi.
+>
+> Cứ mến vinh huê cùng lợi lộc,
+>
+> Chẳng lo kiếp thác đến gần nơi.
+
+---
+
+## 68.
+
+> Gần nơi Tiên cảnh phải xa pham,
+>
+> Cái kiếp trần này trẻ chớ ham.
+>
+> Một miếng đỉnh chung trăm giọt thảm,
+>
+> Phải toan lui gót tránh vòng tham.
