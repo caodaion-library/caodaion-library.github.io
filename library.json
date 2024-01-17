@@ -40,6 +40,13 @@
       "published": true,
       "origin": false,
       "cover": false
+    },
+    {
+      "key": "sach-phan-dao-cao-dai",
+      "name": "Sách Phần Đạo Cao Đài",
+      "published": true,
+      "origin": false,
+      "cover": false
     }
   ]
 }
