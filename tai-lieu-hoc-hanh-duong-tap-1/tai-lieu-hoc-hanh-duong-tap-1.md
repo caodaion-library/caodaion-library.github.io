@@ -61,3 +61,11 @@
   Bền lòng son sắt đến cùng ta".
   
 </center>
+
+## 2/ Đường hướng Quy nguyên Hiệp nhứt:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Bởi những nguyên nhân trên, Đức Thượng Đế vốn từ trước đã phân thân giáng trần khai các Đạo, nay chính người giáng cơ khai Đại Đạo Tam Kỳ Phổ Độ với Tôn chỉ Quy nguyên Giáo lý của Tam giáo Ngũ chi lại làm một. Như thế để thống nhứt tư tưởng và sẽ không gây thêm sự phân vân, chia rẽ trong loài người.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đối với Đại Đạo Tam Kỳ Phổ Độ, các hình thức khác nhau của các Tôn giáo chỉ là những lớp màu sắc phụ thuộc của thời gian và không gian mà thôi (tức là những ảnh hưởng của thời đại, xã hội phong hóa, địa phương). Trái lại, Đại đạo chú trọng nêu sáng và dung hòa phần nội dung, tức là chơn lý cao siêu của mỗi Tôn giáo để công bố phổ thông cho mọi người đều hay, đều hiểu, đều tin tưởng. Tượng trưng là Đại Đạo Tam Kỳ Phổ Độ thờ phụng và noi gương các Đấng Giáo chủ của Tam giáo, Ngũ chi đại Đạo: Đức Phật Thích Ca, Đức Lão Tử, Đức Khổng Tử, Đức Chúa Gia tô ...
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nội dung Giáo lý của Đại Đạo Tam Kỳ là hóa hợp các phần tinh túy của các Giáo lý đã có như là: Dạy Tam cang ngũ thường, thuyết trung dung của Đạo Nho, dạy lẽ công bình bác ái gương thọ khổ của Đức Gia Tô, luyện Tam bữu, ngũ hành của Đạo Tiên, dạy Tam Quy Ngũ Giới, Tứ diệu đề, Đạo bát chánh của Đạo Phật.
