@@ -1,5 +1,5 @@
-# <center>TÀI LIỆU HỌC HẠNH ĐƯỜNG</center>
-## <center>Tập 1</center>
+# <center>TÀI LIỆU HỌC HẠNH ĐƯỜNG <br /> Tập 1</center>
+
 - Tôn chỉ Đại-Đạo Tam-Kỳ Phổ-Độ
 - Đường lối hành đạo của Đức Giáo Tông Nguyễn Ngọc Tương
 - Ý nghĩa sự thờ phượng - Nghi lễ cúng kính.
