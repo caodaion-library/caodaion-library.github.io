@@ -69,3 +69,11 @@
 &nbsp;&nbsp;&nbsp;&nbsp;Đối với Đại Đạo Tam Kỳ Phổ Độ, các hình thức khác nhau của các Tôn giáo chỉ là những lớp màu sắc phụ thuộc của thời gian và không gian mà thôi (tức là những ảnh hưởng của thời đại, xã hội phong hóa, địa phương). Trái lại, Đại đạo chú trọng nêu sáng và dung hòa phần nội dung, tức là chơn lý cao siêu của mỗi Tôn giáo để công bố phổ thông cho mọi người đều hay, đều hiểu, đều tin tưởng. Tượng trưng là Đại Đạo Tam Kỳ Phổ Độ thờ phụng và noi gương các Đấng Giáo chủ của Tam giáo, Ngũ chi đại Đạo: Đức Phật Thích Ca, Đức Lão Tử, Đức Khổng Tử, Đức Chúa Gia tô ...
 
 &nbsp;&nbsp;&nbsp;&nbsp;Nội dung Giáo lý của Đại Đạo Tam Kỳ là hóa hợp các phần tinh túy của các Giáo lý đã có như là: Dạy Tam cang ngũ thường, thuyết trung dung của Đạo Nho, dạy lẽ công bình bác ái gương thọ khổ của Đức Gia Tô, luyện Tam bữu, ngũ hành của Đạo Tiên, dạy Tam Quy Ngũ Giới, Tứ diệu đề, Đạo bát chánh của Đạo Phật.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vậy Quy Tam giáo Hiệp Ngũ chi của Đại Đạo Tam Kỳ Phổ Độ có nghĩa là:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tôn sùng các vị Giáo chủ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Hóa hợp tất cả các phần tinh túy chân truyền của các Tôn giáo đã có.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Người tín đồ chơn chánh của Đại Đạo Tam Kỳ lấy sự thương yêu làm giây Thiêng liêng kết thành chung một lối hóa hợp mọi bất đồng để đi đến mục đích chơn lý Đại đồng.
