@@ -106,4 +106,10 @@
 <br> &nbsp;&nbsp;&nbsp;&nbsp;Quỉ vương giục sự ghét mà tàn hại các con. Vì ghét nhau mà vạn loại mới khi nhau; vì ghét nhau mà vạn loại mới nghịch nhau; vì ghét nhau mà vạn loại mới tàn hại lẫn nhau; mà tàn hại lẫn nhau thì là cơ diệt thế.
 <br> &nbsp;&nbsp;&nbsp;&nbsp;Vậy Thầy cấm các con từ nay ví không đủ sức thương nhau thì cũng chẳng đặng phép ghét nhau. Nghe à!"_
 
+&nbsp;&nbsp;&nbsp;&nbsp;Căn cứ theo bài Thánh giáo trên đây, chúng ta thấy rõ Đại Từ Phụ dạy rằng: Thầy là Trời, là Cha chung của tất cả chúng sanh, Thầy cốn là sự thương yêu, do sự thương yêu mà có chúng ta, do sự thương yêu mà bảo toàn thế giới. Sự thương yêu đã gầy dựng sự sống. Sự ghét là để hủy diệt sự sống, là nguyên nhân của mọi tai nàn khốn khổ.
 
+&nbsp;&nbsp;&nbsp;&nbsp;Cuối cùng, Thầy nghiêm dạy chúng ta chỉ được phép thương yêu nhau mà chẳng được phép ghét nhau.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tóm lại, sự thương yêu đưa nhân loại từ chỗ Chia rẽ tranh đấu tương tàn đến chỗ hiểu nhau, tin nhau, hòa hiệp tương trợ nhau, đồng tình cùng nhau xây dựng một cuộc sống chân hạnh phúc.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vậy trong cuối buổi Hạ ngươn này, tôn chỉ Đại Đạo Tam Kỳ Phổ Độ với chủ nghĩa thương yêu và quy hiệp Tam Giáo, Ngũ Chi là một phương cứu độ nhơn sanh để chuyển qua Thượng ngươn Thánh Đức, hưởng cảnh tuyệt khổ đại đồng.
