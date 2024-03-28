@@ -113,3 +113,27 @@
 &nbsp;&nbsp;&nbsp;&nbsp;Tóm lại, sự thương yêu đưa nhân loại từ chỗ Chia rẽ tranh đấu tương tàn đến chỗ hiểu nhau, tin nhau, hòa hiệp tương trợ nhau, đồng tình cùng nhau xây dựng một cuộc sống chân hạnh phúc.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Vậy trong cuối buổi Hạ ngươn này, tôn chỉ Đại Đạo Tam Kỳ Phổ Độ với chủ nghĩa thương yêu và quy hiệp Tam Giáo, Ngũ Chi là một phương cứu độ nhơn sanh để chuyển qua Thượng ngươn Thánh Đức, hưởng cảnh tuyệt khổ đại đồng.
+
+# III. LÀM THẾ NÀO ĐỂ ĐI ĐÚNG TÔN CHỈ ĐẠI ĐẠO TAM KỲ PHỔ ĐỘ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Như đã trình bày, tồn chỉ Đại Đạo Tam Kỳ Phổ Độ có hai điểm chánh: là Quy Tam Giáo, Hiệp Ngũ Chi và thực hành chủ nghĩa từ bi bác ái Thương yêu đồng loại.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tôn chỉ của Đại Đạo Tam Kỳ Phổ Độ được Đức Ngọc Hoàng Thượng Đế và chư Phật, Tiên, Thánh, Thần giáng dạy bằng huyền diệu cơ bút và được soạn ghi vào trong các quyển thánh Ngôn Hiệp Tuyển, Pháp Chánh Truyền (chánh văn), Tần Luật, nghi tiết đại đàn, kinh cúng tứ thời.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sau này căn cứ vào các kinh luật chơn truyền vừa kể trên, Đức Giáo Tông và Hội Thánh soạn thêm quyển Châu Tri Chỉnh Đạo, quyển Nội Luật Thánh Thất. Riêng phần Đức Lý Giáo Tông có dạy nhiều tuyên ngôn rất màu nhiệm.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Trên đây, tất cả là những kinh luật quý báu, hàm súc đẩy đủ tôn chỉ Đại Đạo Tam Kỳ Phổ Độ. Chúng ta phải biết hết lòng tín ngưỡng tìm hiểu và thực hành theo đó.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đức Giáo Tông là người đầu tiên thực hành Luật Pháp của Đại Đạo Tam Kỳ Phổ Độ được thành công trọn vẹn. Người đã chứng minh trước nhơn sanh giá trị và huyền diệu cao siêu của tôn chỉ Đại Đạo Tam Kỳ Phổ Độ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Kết lại, tôn chỉ Đại Đạo Tam Kỳ Phổ Độ vốn không phải là một lý tưởng riêng của người trong bổn Đạo, mà vốn là kết quả tinh thần muốn sống tồn tại của toàn thể nhơn sanh.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Việc quy Tam Giáo hiệp Ngũ Chi, Đại Đạo Tàm Kỳ Phổ Độ đã dunh hòa được các mối bất đồng về tinh thần tín ngưỡng của nhân sanh.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Với chủ nghĩa thương yêu, khuyên tất cả chúng sanh biết nhìn nhận mình là anh em con chung một Đấng Cha Trời, Đại Đạo Tam Kỳ Phổ Độ đã dung hòa được các mối bất đồng về vật chất, quyền lại màu da sắc tóc của mọi người.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Cả hai điểm chánh của Đại Đạo Tam Kỳ Phổ Độ đều nhằm vào việc mưu cầu hòa bình hạnh phúc và tuyệt khổ cho nhơn sanh.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vậy, tôn chỉ Đại Đạo Tam Kỳ Phổ Độ là một như cầu cần thiết cho nhân loại ngày nay.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chúng ta là những đứa con đến trước với Đại Từ Phụ, bổn phận của chúng ta là phải ôn nhuần tôn chỉ Đại Đạo Tam Kỳ Phổ Độ trong tâm não mình, để mà tận tâm tận lực lo thi thố thế nào cho có đủ gương mấu là người của Đại Đạo Tam Kỳ Phổ Độ.
