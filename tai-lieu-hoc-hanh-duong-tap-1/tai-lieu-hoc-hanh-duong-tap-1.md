@@ -76,4 +76,20 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;Hóa hợp tất cả các phần tinh túy chân truyền của các Tôn giáo đã có.
 
-&nbsp;&nbsp;&nbsp;&nbsp;Người tín đồ chơn chánh của Đại Đạo Tam Kỳ lấy sự thương yêu làm giây Thiêng liêng kết thành chung một lối hóa hợp mọi bất đồng để đi đến mục đích chơn lý Đại đồng.
+&nbsp;&nbsp;&nbsp;&nbsp;Người tín đồ chơn chánh của Đại Đạo Tam Kỳ lấy sự thương yêu làm giây Thiêng liêng kết thành chung một lối hóa hợp mọi bất đồng để đi đến mục đích chơn lý Đại đồng. Thiện chí của chúng ta là xây đắp con đường liên lạc tinh thần Đạo đức, để các Tôn giáo tìm hiểu nhau, dung hòa lẫn nhau trong sứ mạng độ đời.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Ngày nào mà các vị Giáo sĩ, tăng già, Nho gia ... đồng nhìn nhận nhau theo những lẽ trên, tức là ngày thành tựu cơ Quy nguyên Hiệp nhứt của Đại Đạo Tam Kỳ Phổ Độ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sự Quy nguyên Hiệp nhứt cũng được chứng minh trong phương châm hành Đạo của người tu theo Đại Đạo Tam Kỳ Phổ Độ. Phương châm đó là "Tuần tự nhi tiến" đi từ thấp đến cao, từ chỗ dễ đến chỗ khó gồm từ Nhơn Đạo, Thần Đạo, Thánh Đạo, Tiên Đạo, Phật Đạo.
+
+&nbsp;&nbsp;&nbsp;&nbsp;a) Trước hết lo phần Nhơn Đạo (Tùng Khổ) nghĩa là lo tu tâm sửa tánh trau dồi đức hạnh cho bản thân mình, lo tròn phận sự đối với gia đình, xong tùy điều kiện lo thêm việc hữu ích cho bà con thôn lân xã hội.
+
+&nbsp;&nbsp;&nbsp;&nbsp;b) Kế lo phần Thần Đạo (Thắng Khổ) nghĩa là: lo hóa dân vi thiện khuyến khích chánh nghiệp (việc làm chơn chánh) chánh mạng (nghề nghiệp làm ăn chơn chánh) để góp phần vào việc trật tự ấm no cho xã hội.
+
+&nbsp;&nbsp;&nbsp;&nbsp;c) Tiếp lo phần Thánh Đạo (Thọ Khổ) nghĩa là: bắt đầu xả thân hành Đạo, ly gia cắt ái, trường trai tuyệt dục khép mình vao khuôn hạnh đạo đức để phổ thông nền Đạo.
+
+&nbsp;&nbsp;&nbsp;&nbsp;d) Sau rốt là lo phân Tiên và Phật Đạo (thoát và giải khổ): sau khi đã có công quả âm chất xứng đáng mới lo đến việc luyện , để mong đoạt sự đắc pháp siêu thoát linh hồn, hầu cứu rỗi rộng rãi sanh linh trong phạm vi thiêng liêng huyền diệu.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đại để, việc hành Đạo theo Đại Đạo Tam Kỳ Phổ Độ là lấy việc tu thần, công quả làm chánh yếu để bước qua việc luyện hành tân pháp đoạt mục đích cuối cùng là cơ tuyệt khổ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chính Đức Giáo Tông Nguyễn Ngọc Tương đã thực hành một đường lối hành Đạo theo phương châm nói trên và đã đi đến chỗ thành công đắc quả.
