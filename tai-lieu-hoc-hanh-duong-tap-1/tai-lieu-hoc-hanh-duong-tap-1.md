@@ -137,3 +137,45 @@
 &nbsp;&nbsp;&nbsp;&nbsp;Vậy, tôn chỉ Đại Đạo Tam Kỳ Phổ Độ là một như cầu cần thiết cho nhân loại ngày nay.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chúng ta là những đứa con đến trước với Đại Từ Phụ, bổn phận của chúng ta là phải ôn nhuần tôn chỉ Đại Đạo Tam Kỳ Phổ Độ trong tâm não mình, để mà tận tâm tận lực lo thi thố thế nào cho có đủ gương mấu là người của Đại Đạo Tam Kỳ Phổ Độ.
+
+
+# <center>ĐƯỜNG LỐI HÀNH ĐẠO CỦA ĐỨC GIÁO TÔNG NGUYỄN NGỌC TƯƠNG</center>
+
+# I. THIÊN MẠNG TIỀN ĐỊNH CỦA ĐỨC GIÁO TÔNG TRONG TAM KỲ PHỔ ĐỘ:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đức Giáo Tông Nguyễn Ngọc Tương là người đã thọ thiên mạng cầm giềng mối Đạo tại thế, để bảo thủ, thi hành chân truyền và tân pháp của Đức Chí Tôn trong Tam Kỳ Phổ Độ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Những đoạn Thánh Giáo dưới đâu của Đức Chí Tôn và Đức Lý Đại Tiên chứng minh rõ sứ mạng thiêng liêng của Người:
+
+&nbsp;&nbsp;&nbsp;&nbsp;**1/**
+
+  _<center>"Con trị ai, Thầy cũng trị ai,
+  <br>Một lòng đạo đức chớ đơn sai,
+  <br>Năm năm công quả tua bền chí,
+  <br>Chỉ dẫn nhơn sanh bước lạc loài."</center>_
+
+&nbsp;&nbsp;&nbsp;&nbsp;(Câu đầu bài Thánh Thi ám chỉ Người giống Thánh ý Đại Từ Phụ chỉ thương mà không đành quở phạt).
+
+&nbsp;&nbsp;&nbsp;&nbsp;**2/**
+
+_"&nbsp;&nbsp;&nbsp;&nbsp;... Tương! Con nhớ lời Thầy dạy: con vốn con tin của Thầu giao cho Chánh Phủ. Nhờ con mà nền Đạo mới ra lẽ chơn chánh trước mặt Chánh Phủ và chúng sanh. Thầy để cho con chịu lắm sự nhọc nhằn đau thảm. Song có vậy mới đặng. Vùi con là Đạo, Đạo là con. Thầy rất mừng cho hạnh đức con rất hạp cùng lý Đạo, Thầy dặn con phải ẩn nhẫn chịu khổ hạnh cho lẽ Đạo được rõ ràng. Đạo nhờ con mà nên, con vì đạo mới ra đáng mặt ..."_ (Đức Chí Tôn).
+
+&nbsp;&nbsp;&nbsp;&nbsp;**3/**
+
+_"Thượng Tương Thanh! Lão mừng hiều hữu đó. Lão vì Đức Chí Tôn đã hứa lập vị cho đáng giá, thì Hiều Hữu phải tận tâm mà chung lo với lão mới phải. Ngày nay đã hành chánh, thì cũng nên tập cho mihnf có đủ tư cách Người cầm sanh mạng của nhơn loại..."_(Đức Lý Đại Tiên).
+
+# II. ĐƯỜNG LỐI HÀNH ĐẠO CỦA ĐỨC GIÁO TÔNG:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nhận rõ Thiên chức của mình đối với Đạo, tức là phải giải khổ cho nhơn sanh về các phương diện: Vật chất, tinh thần và linh hồn, Đức Giáo Tông đã thực hành một đường lối hành đạo, gồm có năm đặc điểm sau đây:
+
+## 1. Giữ vững đức tin nơi Thầy, nơi Đạo, nơi Đức Lý Đại Tiên và các đấng Phật, Tiên, Thánh, Thần:
+
+## 2. Tinh thần vị nhơn sanh xã thân hành đạo:
+
+## 3. Thực hành đức từ bi bác ái tràn trề để nêu gương cho sự xây dựng hòa bình và hạnh phúc chung cho nhơn loại:
+
+## 4. Giữ vững lập trường đạo đức thuần túy, không tham gia chính trị đảng phái:
+
+## 5. Phải có công quả âm chất đầy đủ mới bảo đảm cho sự luyện hành Tân Pháp được thành công:
+
+# III. KẾT LUẬN:
