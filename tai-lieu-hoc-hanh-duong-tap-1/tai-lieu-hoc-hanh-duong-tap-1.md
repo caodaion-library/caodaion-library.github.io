@@ -93,3 +93,17 @@
 &nbsp;&nbsp;&nbsp;&nbsp;Đại để, việc hành Đạo theo Đại Đạo Tam Kỳ Phổ Độ là lấy việc tu thần, công quả làm chánh yếu để bước qua việc luyện hành tân pháp đoạt mục đích cuối cùng là cơ tuyệt khổ.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chính Đức Giáo Tông Nguyễn Ngọc Tương đã thực hành một đường lối hành Đạo theo phương châm nói trên và đã đi đến chỗ thành công đắc quả.
+
+# II. VỀ THỰC HÀNH CHỦ NGHĨA THƯƠNG YÊU.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Điểm thứ hai của Đại Đạo Tam Kỳ Phổ Độ là thực hành chỉ nghiwax từ bi bác ái, thương yêu tràn trề từ người đến vật.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Bài Thánh Giáo "Bài Thương Yêu" dưới đây do Đại Từ Phụ giáng dạy, nói rõ hết ý nghĩa điểm này.
+
+&nbsp;&nbsp;&nbsp;&nbsp;_"Thầy là Cha của sự thương yêu, do bởi sự thương yêu mới tạo thành thế giới và sanh sản các con. Vậy các con sản xuất nơi sự thương yêu là cơ thể của sự thương yêu đó.
+<br> &nbsp;&nbsp;&nbsp;&nbsp;Sự Thương Yêu là giềng bảo sanh của càn khôn thế giới. Bởi thương yêu mà vạn loại hòa bình, càn khôn an tịnh; đặng an tịnh mới không thù nghịch lẫn nhau; không thù nghịch lẫn nhau mới không tàn hại nhau; không tàn hại nhau mới giữ bền cơ sanh hóa.
+<br> &nbsp;&nbsp;&nbsp;&nbsp;Khẻ nghịch của cơ sanh hóa là Quỉ vương, là tay diệt hóa. Cũng như có sống của Thầy, ắt có chết của Quỉ vương.
+<br> &nbsp;&nbsp;&nbsp;&nbsp;Quỉ vương giục sự ghét mà tàn hại các con. Vì ghét nhau mà vạn loại mới khi nhau; vì ghét nhau mà vạn loại mới nghịch nhau; vì ghét nhau mà vạn loại mới tàn hại lẫn nhau; mà tàn hại lẫn nhau thì là cơ diệt thế.
+<br> &nbsp;&nbsp;&nbsp;&nbsp;Vậy Thầy cấm các con từ nay ví không đủ sức thương nhau thì cũng chẳng đặng phép ghét nhau. Nghe à!"_
+
+
