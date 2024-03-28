@@ -158,11 +158,11 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;**2/**
 
-_"&nbsp;&nbsp;&nbsp;&nbsp;... Tương! Con nhớ lời Thầy dạy: con vốn con tin của Thầu giao cho Chánh Phủ. Nhờ con mà nền Đạo mới ra lẽ chơn chánh trước mặt Chánh Phủ và chúng sanh. Thầy để cho con chịu lắm sự nhọc nhằn đau thảm. Song có vậy mới đặng. Vùi con là Đạo, Đạo là con. Thầy rất mừng cho hạnh đức con rất hạp cùng lý Đạo, Thầy dặn con phải ẩn nhẫn chịu khổ hạnh cho lẽ Đạo được rõ ràng. Đạo nhờ con mà nên, con vì đạo mới ra đáng mặt ..."_ (Đức Chí Tôn).
+&nbsp;&nbsp;&nbsp;&nbsp;_"... Tương! Con nhớ lời Thầy dạy: con vốn con tin của Thầu giao cho Chánh Phủ. Nhờ con mà nền Đạo mới ra lẽ chơn chánh trước mặt Chánh Phủ và chúng sanh. Thầy để cho con chịu lắm sự nhọc nhằn đau thảm. Song có vậy mới đặng. Vùi con là Đạo, Đạo là con. Thầy rất mừng cho hạnh đức con rất hạp cùng lý Đạo, Thầy dặn con phải ẩn nhẫn chịu khổ hạnh cho lẽ Đạo được rõ ràng. Đạo nhờ con mà nên, con vì đạo mới ra đáng mặt ..."_ (Đức Chí Tôn).
 
 &nbsp;&nbsp;&nbsp;&nbsp;**3/**
 
-_"Thượng Tương Thanh! Lão mừng hiều hữu đó. Lão vì Đức Chí Tôn đã hứa lập vị cho đáng giá, thì Hiều Hữu phải tận tâm mà chung lo với lão mới phải. Ngày nay đã hành chánh, thì cũng nên tập cho mihnf có đủ tư cách Người cầm sanh mạng của nhơn loại..."_(Đức Lý Đại Tiên).
+&nbsp;&nbsp;&nbsp;&nbsp;_"Thượng Tương Thanh! Lão mừng hiều hữu đó. Lão vì Đức Chí Tôn đã hứa lập vị cho đáng giá, thì Hiều Hữu phải tận tâm mà chung lo với lão mới phải. Ngày nay đã hành chánh, thì cũng nên tập cho mihnf có đủ tư cách Người cầm sanh mạng của nhơn loại..."_(Đức Lý Đại Tiên).
 
 # II. ĐƯỜNG LỐI HÀNH ĐẠO CỦA ĐỨC GIÁO TÔNG:
 
