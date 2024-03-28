@@ -93,3 +93,89 @@
 &nbsp;&nbsp;&nbsp;&nbsp;Đại để, việc hành Đạo theo Đại Đạo Tam Kỳ Phổ Độ là lấy việc tu thần, công quả làm chánh yếu để bước qua việc luyện hành tân pháp đoạt mục đích cuối cùng là cơ tuyệt khổ.
 
 &nbsp;&nbsp;&nbsp;&nbsp;Chính Đức Giáo Tông Nguyễn Ngọc Tương đã thực hành một đường lối hành Đạo theo phương châm nói trên và đã đi đến chỗ thành công đắc quả.
+
+# II. VỀ THỰC HÀNH CHỦ NGHĨA THƯƠNG YÊU.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Điểm thứ hai của Đại Đạo Tam Kỳ Phổ Độ là thực hành chỉ nghiwax từ bi bác ái, thương yêu tràn trề từ người đến vật.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Bài Thánh Giáo "Bài Thương Yêu" dưới đây do Đại Từ Phụ giáng dạy, nói rõ hết ý nghĩa điểm này.
+
+&nbsp;&nbsp;&nbsp;&nbsp;_"Thầy là Cha của sự thương yêu, do bởi sự thương yêu mới tạo thành thế giới và sanh sản các con. Vậy các con sản xuất nơi sự thương yêu là cơ thể của sự thương yêu đó.
+<br> &nbsp;&nbsp;&nbsp;&nbsp;Sự Thương Yêu là giềng bảo sanh của càn khôn thế giới. Bởi thương yêu mà vạn loại hòa bình, càn khôn an tịnh; đặng an tịnh mới không thù nghịch lẫn nhau; không thù nghịch lẫn nhau mới không tàn hại nhau; không tàn hại nhau mới giữ bền cơ sanh hóa.
+<br> &nbsp;&nbsp;&nbsp;&nbsp;Khẻ nghịch của cơ sanh hóa là Quỉ vương, là tay diệt hóa. Cũng như có sống của Thầy, ắt có chết của Quỉ vương.
+<br> &nbsp;&nbsp;&nbsp;&nbsp;Quỉ vương giục sự ghét mà tàn hại các con. Vì ghét nhau mà vạn loại mới khi nhau; vì ghét nhau mà vạn loại mới nghịch nhau; vì ghét nhau mà vạn loại mới tàn hại lẫn nhau; mà tàn hại lẫn nhau thì là cơ diệt thế.
+<br> &nbsp;&nbsp;&nbsp;&nbsp;Vậy Thầy cấm các con từ nay ví không đủ sức thương nhau thì cũng chẳng đặng phép ghét nhau. Nghe à!"_
+
+&nbsp;&nbsp;&nbsp;&nbsp;Căn cứ theo bài Thánh giáo trên đây, chúng ta thấy rõ Đại Từ Phụ dạy rằng: Thầy là Trời, là Cha chung của tất cả chúng sanh, Thầy cốn là sự thương yêu, do sự thương yêu mà có chúng ta, do sự thương yêu mà bảo toàn thế giới. Sự thương yêu đã gầy dựng sự sống. Sự ghét là để hủy diệt sự sống, là nguyên nhân của mọi tai nàn khốn khổ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Cuối cùng, Thầy nghiêm dạy chúng ta chỉ được phép thương yêu nhau mà chẳng được phép ghét nhau.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tóm lại, sự thương yêu đưa nhân loại từ chỗ Chia rẽ tranh đấu tương tàn đến chỗ hiểu nhau, tin nhau, hòa hiệp tương trợ nhau, đồng tình cùng nhau xây dựng một cuộc sống chân hạnh phúc.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vậy trong cuối buổi Hạ ngươn này, tôn chỉ Đại Đạo Tam Kỳ Phổ Độ với chủ nghĩa thương yêu và quy hiệp Tam Giáo, Ngũ Chi là một phương cứu độ nhơn sanh để chuyển qua Thượng ngươn Thánh Đức, hưởng cảnh tuyệt khổ đại đồng.
+
+# III. LÀM THẾ NÀO ĐỂ ĐI ĐÚNG TÔN CHỈ ĐẠI ĐẠO TAM KỲ PHỔ ĐỘ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Như đã trình bày, tồn chỉ Đại Đạo Tam Kỳ Phổ Độ có hai điểm chánh: là Quy Tam Giáo, Hiệp Ngũ Chi và thực hành chủ nghĩa từ bi bác ái Thương yêu đồng loại.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tôn chỉ của Đại Đạo Tam Kỳ Phổ Độ được Đức Ngọc Hoàng Thượng Đế và chư Phật, Tiên, Thánh, Thần giáng dạy bằng huyền diệu cơ bút và được soạn ghi vào trong các quyển thánh Ngôn Hiệp Tuyển, Pháp Chánh Truyền (chánh văn), Tần Luật, nghi tiết đại đàn, kinh cúng tứ thời.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Sau này căn cứ vào các kinh luật chơn truyền vừa kể trên, Đức Giáo Tông và Hội Thánh soạn thêm quyển Châu Tri Chỉnh Đạo, quyển Nội Luật Thánh Thất. Riêng phần Đức Lý Giáo Tông có dạy nhiều tuyên ngôn rất màu nhiệm.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Trên đây, tất cả là những kinh luật quý báu, hàm súc đẩy đủ tôn chỉ Đại Đạo Tam Kỳ Phổ Độ. Chúng ta phải biết hết lòng tín ngưỡng tìm hiểu và thực hành theo đó.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đức Giáo Tông là người đầu tiên thực hành Luật Pháp của Đại Đạo Tam Kỳ Phổ Độ được thành công trọn vẹn. Người đã chứng minh trước nhơn sanh giá trị và huyền diệu cao siêu của tôn chỉ Đại Đạo Tam Kỳ Phổ Độ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Kết lại, tôn chỉ Đại Đạo Tam Kỳ Phổ Độ vốn không phải là một lý tưởng riêng của người trong bổn Đạo, mà vốn là kết quả tinh thần muốn sống tồn tại của toàn thể nhơn sanh.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Việc quy Tam Giáo hiệp Ngũ Chi, Đại Đạo Tàm Kỳ Phổ Độ đã dunh hòa được các mối bất đồng về tinh thần tín ngưỡng của nhân sanh.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Với chủ nghĩa thương yêu, khuyên tất cả chúng sanh biết nhìn nhận mình là anh em con chung một Đấng Cha Trời, Đại Đạo Tam Kỳ Phổ Độ đã dung hòa được các mối bất đồng về vật chất, quyền lại màu da sắc tóc của mọi người.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Cả hai điểm chánh của Đại Đạo Tam Kỳ Phổ Độ đều nhằm vào việc mưu cầu hòa bình hạnh phúc và tuyệt khổ cho nhơn sanh.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Vậy, tôn chỉ Đại Đạo Tam Kỳ Phổ Độ là một như cầu cần thiết cho nhân loại ngày nay.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Chúng ta là những đứa con đến trước với Đại Từ Phụ, bổn phận của chúng ta là phải ôn nhuần tôn chỉ Đại Đạo Tam Kỳ Phổ Độ trong tâm não mình, để mà tận tâm tận lực lo thi thố thế nào cho có đủ gương mấu là người của Đại Đạo Tam Kỳ Phổ Độ.
+
+
+# <center>ĐƯỜNG LỐI HÀNH ĐẠO CỦA ĐỨC GIÁO TÔNG NGUYỄN NGỌC TƯƠNG</center>
+
+# I. THIÊN MẠNG TIỀN ĐỊNH CỦA ĐỨC GIÁO TÔNG TRONG TAM KỲ PHỔ ĐỘ:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đức Giáo Tông Nguyễn Ngọc Tương là người đã thọ thiên mạng cầm giềng mối Đạo tại thế, để bảo thủ, thi hành chân truyền và tân pháp của Đức Chí Tôn trong Tam Kỳ Phổ Độ.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Những đoạn Thánh Giáo dưới đâu của Đức Chí Tôn và Đức Lý Đại Tiên chứng minh rõ sứ mạng thiêng liêng của Người:
+
+&nbsp;&nbsp;&nbsp;&nbsp;**1/**
+
+  _<center>"Con trị ai, Thầy cũng trị ai,
+  <br>Một lòng đạo đức chớ đơn sai,
+  <br>Năm năm công quả tua bền chí,
+  <br>Chỉ dẫn nhơn sanh bước lạc loài."</center>_
+
+&nbsp;&nbsp;&nbsp;&nbsp;(Câu đầu bài Thánh Thi ám chỉ Người giống Thánh ý Đại Từ Phụ chỉ thương mà không đành quở phạt).
+
+&nbsp;&nbsp;&nbsp;&nbsp;**2/**
+
+&nbsp;&nbsp;&nbsp;&nbsp;_"... Tương! Con nhớ lời Thầy dạy: con vốn con tin của Thầu giao cho Chánh Phủ. Nhờ con mà nền Đạo mới ra lẽ chơn chánh trước mặt Chánh Phủ và chúng sanh. Thầy để cho con chịu lắm sự nhọc nhằn đau thảm. Song có vậy mới đặng. Vùi con là Đạo, Đạo là con. Thầy rất mừng cho hạnh đức con rất hạp cùng lý Đạo, Thầy dặn con phải ẩn nhẫn chịu khổ hạnh cho lẽ Đạo được rõ ràng. Đạo nhờ con mà nên, con vì đạo mới ra đáng mặt ..."_ (Đức Chí Tôn).
+
+&nbsp;&nbsp;&nbsp;&nbsp;**3/**
+
+&nbsp;&nbsp;&nbsp;&nbsp;_"Thượng Tương Thanh! Lão mừng hiều hữu đó. Lão vì Đức Chí Tôn đã hứa lập vị cho đáng giá, thì Hiều Hữu phải tận tâm mà chung lo với lão mới phải. Ngày nay đã hành chánh, thì cũng nên tập cho mihnf có đủ tư cách Người cầm sanh mạng của nhơn loại..."_(Đức Lý Đại Tiên).
+
+# II. ĐƯỜNG LỐI HÀNH ĐẠO CỦA ĐỨC GIÁO TÔNG:
+
+&nbsp;&nbsp;&nbsp;&nbsp;Nhận rõ Thiên chức của mình đối với Đạo, tức là phải giải khổ cho nhơn sanh về các phương diện: Vật chất, tinh thần và linh hồn, Đức Giáo Tông đã thực hành một đường lối hành đạo, gồm có năm đặc điểm sau đây:
+
+## 1. Giữ vững đức tin nơi Thầy, nơi Đạo, nơi Đức Lý Đại Tiên và các đấng Phật, Tiên, Thánh, Thần:
+
+## 2. Tinh thần vị nhơn sanh xã thân hành đạo:
+
+## 3. Thực hành đức từ bi bác ái tràn trề để nêu gương cho sự xây dựng hòa bình và hạnh phúc chung cho nhơn loại:
+
+## 4. Giữ vững lập trường đạo đức thuần túy, không tham gia chính trị đảng phái:
+
+## 5. Phải có công quả âm chất đầy đủ mới bảo đảm cho sự luyện hành Tân Pháp được thành công:
+
+# III. KẾT LUẬN:
