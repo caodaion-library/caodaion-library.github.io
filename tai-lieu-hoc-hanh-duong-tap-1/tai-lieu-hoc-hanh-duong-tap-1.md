@@ -170,6 +170,14 @@
 
 ## 1. Giữ vững đức tin nơi Thầy, nơi Đạo, nơi Đức Lý Đại Tiên và các đấng Phật, Tiên, Thánh, Thần:
 
+&nbsp;&nbsp;&nbsp;&nbsp;Đức Giáo Tông  tin quả quyết có Trời khai Đạo, có Đức Lý Đại Tiên và các Đấng Phật, tiên, Thánh, Thần giáng trần giáo đạo để giúp vùa vào việc phổ thông nền Đạo. Đức tin ấy Đức giáo Tông đã luyện thành sắt, đá, không gì làm lay chuyển được. Người luôn luôn bảo thủ vững chắc và thực hành đúng đắn Chơn truyền và Tân Pháp của Đức Chí Tôn. Trong việc hành đạo, trong việc tổ chức mọi hình thức của Đạo, cũng nhưn việc tu luyện hành Tân Pháp Đức Giáo Tông một lòng trọn tin theo các Thánh Giáo Chơn Truyền. Khi còn ở Tòa Thánh Tây Ninh, khi gặp con đại khảo nội bộ (1930-1935), khi lui về Bến Tre thành lập Ban Chỉnh Đạo, rồi lập Hội Thánh Đại Đạo Tam Kỳ Phổ Độ, khi Đại Tịnh nơi Thiên Lý Mật Truyền (cửu niên diện bích), Đức Giáo Tông phải chịu biết bao khó khăn nguy hiểm, nhưng không bao giờ Người thối chí ngã lòng hoặc đi sai lệch Chơn Tuyền và Tân Pháp. Luôn luôn vững đức tin, Người ẩn nhẫn và sáng suốt lướt qua mọi khảo thí, để bào toàn cho nền Đạo và nhơn sanh được yên lành.
+
+&nbsp;&nbsp;&nbsp;&nbsp;Đức Giáo Tông thường nhắc nhở toàn Đạo câu: "Đức tin là cần yếu cho sự đắc Đạo".
+
+&nbsp;&nbsp;&nbsp;&nbsp;Người hằng chỉ dạy chúng ta mọi cách để nuôi dưỡng đức tin. Là phải: Cố gắng giữ chay lạc, siêng năng cúng kính, trau giồi tâm tánh theo Ngũ Giới Cấm, Tứ Đại Điều Quy, siêng năng họ Đạo, làm công quả, quý trọng tìm hiểu và trọn tuân theo các luật lệ của Đạo, các Thánh Giáo của Thầy và những lời Tuyên Ngôn của Đức Lý Giáo Tông do Hội Thánh truyền dạy v.v...
+
+&nbsp;&nbsp;&nbsp;&nbsp;Tóm lại, đặc điểm thứ nhất trong đường lối hành đạo của Đức Giáo Tông là: Giữ trọn đức tin nơi huyền năng Tạo Hóa của Đức Chí Tôn, nơi chơn truyền, Tân Pháp của Đại Đạo và quyết tâm thi hành đúng theo các Thánh Giáo của ơn trên và các đấng thiêng liêng phán dạy trong thời kỳ khai Đạo.
+
 ## 2. Tinh thần vị nhơn sanh xã thân hành đạo:
 
 ## 3. Thực hành đức từ bi bác ái tràn trề để nêu gương cho sự xây dựng hòa bình và hạnh phúc chung cho nhơn loại:
